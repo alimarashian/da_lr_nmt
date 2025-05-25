@@ -25,11 +25,6 @@ make two files: /rc_scratch/sema4648/project_data/bible_data/$LANG_NAME/bible.en
 then make_bible = true, an run just_bible on preprocessing. 
 
 
-for making the dictionary:
-prepare the monolingual english side in somewhere like /projects/sema4648/mb_fairseq/data/news/$LANG_NAME/en-TGT_CODE-extra.en
-then run /projects/sema4648/mb_fairseq/data/news/Polish/dictionary/preprocessing.py (change the variables in it), then copy the dictionary in the language folder (it's in Polish now)
-
-
 
 
 
