@@ -1,0 +1,39 @@
+To add a new language, you should add a new lang token - if you don't want to use an existing lang code. You can hardcode it in the following places :
+
+1. In trainer: (fairseq.fairseq.trainer):
+
+around line 600, after other langs add these two lines:
+lang_vec_new = torch.normal(0, 0.02, size=(1, state["model"][k].size(dim=1))) ## or however you want to initilaize the vector
+pre_trained_sd[k] = torch.cat((pre_trained_sd[k], lang_vec_new), dim=0)
+
+
+2. in translation_from_pretrained_bart.py (fairseq.fairseq.tasks.translation_from_pretrained_bart)
+
+add:
+    d.add_symbol("[new_lang_id_XX]")
+
+3. in denoising (fairseq.fairseq.tasks.denoising):
+add:
+    d.add_symbol("[new_lang_id_XX]")
+
+
+
+------------------------------------------------------------------------
+
+for bible data:
+make two files: /rc_scratch/sema4648/project_data/bible_data/$LANG_NAME/bible.en and bible.TGT_CODE
+then make_bible = true, an run just_bible on preprocessing. 
+
+
+for making the dictionary:
+prepare the monolingual english side in somewhere like /projects/sema4648/mb_fairseq/data/news/$LANG_NAME/en-TGT_CODE-extra.en
+then run /projects/sema4648/mb_fairseq/data/news/Polish/dictionary/preprocessing.py (change the variables in it), then copy the dictionary in the language folder (it's in Polish now)
+
+
+
+
+
+
+
+
+

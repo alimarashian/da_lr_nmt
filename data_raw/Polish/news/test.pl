@@ -1,0 +1,1500 @@
+a) gromadzenie i centralizowanie informacji, które dotyczą przestępstw zauważonych w internecie, a które pochodzą z platform krajowych, gdzie były wstępnie analizowane, by stwierdzić, czy przestępstwa te mają charakter europejski lub ponadkrajowy i muszą w związku z tym być przekazane do platformy europejskiej [2] ;
+dobre dla ciebie.
+„polskie nsro są dowodem na to, że europejska solidarność, będąca fundamentem projektu europejskiego, może pomóc mniej rozwiniętym krajom i regionom w osiągnięciu wyższego poziomu dobrobytu.
+możliwość, aby te osoby, jeśli okaże się, że podatek tonażowy może również zastąpić podatek dochodowy od osób fizycznych, odliczały składki na ubezpieczenia społeczne od kwoty podatku i składki na ubezpieczenie zdrowotne od podstawy opodatkowania;
+„branża językowa ma duże znaczenie, zarówno pod względem gospodarczym, jak i strategicznym.
+korzystając z oceny dostarczonej przez komisję, rada europejska omówiła polityki i środki przedstawione przez państwa członkowskie.
+jest to niewielki wzrost w porównaniu z 420 826 tonami w zeszłym roku.
+unia europejska jest zdania, że zniesienie kary śmierci przyczynia się do zwiększenia poszanowania godności człowieka.
+poprawi to spójność i pozwoli lepiej skoncentrować się na realizacji celów politycznych i współpracy z partnerami, zgodnie z wartościami i priorytetami ue.
+sprawozdanie w języku angielskim na temat konkurencyjności 2010
+zasada ta stanowi jedno z najważniejszych osiągnięć decyzji ramowej.
+pomoc państwa: komisja przyjmuje nowe wytyczne w sprawie pomocy regionalnej na lata 2007-2013
+oprócz eis kraje partnerskie będą mogły korzystać także z innych instrumentów, takich jak europejska inicjatywa na rzecz demokracji i praw człowieka czy instrument współpracy w dziedzinie bezpieczeństwa jądrowego, a także instrumenty reagowania w sytuacjach kryzysowych (pomoc humanitarna, pomoc makrofinansowa, instrument na rzecz stabilności).
+temat drugi: migracja i swobodny przepływ osób wewnątrz naszych granic;
+wyrokiem z dnia 8 listopada 2012 r. 2 sąd orzekł, że nazwa „vinohradnícka oblasť tokaj” była już chroniona na podstawie rozporządzenia unii przed dokonaniem wpisu do bazy danych e-bacchus, a wpis jako taki nie mógł wywołać skutków prawnych.
+w szczególności rada omówiła ustalenia dotyczące tłumaczeń w ramach przyszłego unijnego systemu patentowego .
+kończąc najdłuższą i najpoważniejszą recesję w historii ue, w trzecim kwartale 2009 r. realny pkb zaczął ponownie rosnąć.
+w wielu wsiach bez rolnictwa i przemysłu rolno-spożywczego po prostu nie ma żadnej aktywności.
+ten nowy, uproszczony program będzie łączył całe wsparcie na poziomie ue od badań naukowych po rynek i stworzy nowe możliwości dla szybko rozwijających się innowacyjnych przedsiębiorstw.
+środek ten ma na celu poprawę infrastruktury lotniska, a co za tym idzie pobudzenie rozwoju całego regionu.
+decyzję dotyczącą aktualizacji wykazu osób, grup i podmiotów objętych art. 2, 3 i 4 wspólnego stanowiska 2001/931/wpzib 2 w sprawie zastosowania szczególnych środków w celu zwalczania terroryzmu;
+wielu respondentów podkreśla również potrzebę bardziej bezpośredniej komunikacji ze społeczeństwem, na przykład poprzez silniejszy nacisk na edukację naukową, przekazywanie informacji naukowych oraz promocję nauki, przy jasno określonej roli szczebla krajowego i regionalnego.
+zakres zastosowania dyrektywy jest ograniczony do osób fizycznych i nie obejmuje przedsiębiorstw.
+nicolae rotileanu sekretarz stanu, ministerstwo gospodarki, handlu i otoczenia biznesowego
+oecd, talis 2013 rezultaty
+z kolei trzy inne państwa (niemcy, polska i szwecja) odpowiedziały na wezwanie do usunięcia uchybienia, lecz zaznaczyły, że nowe przepisy wykonawcze wejdą w życie dopiero w przyszłym roku.
+turcja zobowiązała się do przyspieszenia realizacji planu działania, w tym przez szybsze rozpoczęcie stosowania wszystkich postanowień umowy o readmisji między ue a turcją.
+w oświadczeniu podkreśla się rozróżnienie między rybołówstwem morskim i śródlądowym oraz podkreśla specyficzną rolę odpowiedniego zarządzania zasobami rybołówstwa śródlądowego, które może wesprzeć rozwój obszarów wiejskich i zwiększyć różnorodność biologiczną wód słodkich.
+jeśli jednak państwa członkowskie nie uzupełnią deficytu za rok 2012 (przynajmniej 180 mln euro), na pokrycie ujemnego salda zostanie przeznaczona część środków budżetowych na 2013 r. i możliwe jest, że budżet ten zostanie w pełni wykorzystany już w połowie roku 2013 – tak więc po tym terminie należy się spodziewać jeszcze większych problemów.
+ue – organizacja bezpieczeństwa i współpracy w europie (ue – obwe);
+trybunał zauważył, że tak właśnie może być w przypadku napojów spirytusowych.
+a jednak kluczowe jest wprowadzenie przepisów i procedur, które „wyprzedzą” problemy i zapobiegną ich powstawaniu w przyszłości.
+od 2006 r. działa kilka sieci regionów, wspieranych przez komisję europejską w ramach inicjatywy regiony na rzecz zmian gospodarczych, między innymi:
+wszystkie pozostałe państwa świata są krajami partnerskimi i mogą uczestniczyć w niektórych działaniach lub pod pewnymi warunkami.
+powołując się na znaczenie stabilności libanu dla całego regionu, rada oczekuje, że demokratyczne instytucje libanu wznowią działalność w pełnym zakresie.
+w październiku 2016 r. komisja przyjęła wniosek dotyczący zmiany decyzji z 2004 r. w sprawie europass, będący jednym z dziesięciu działań w ramach europejskiego programu na rzecz umiejętności.
+rada podkreśla, że wolność religii i przekonań oraz zwalczanie nietolerancji religijnej ma strategiczne znaczenie, i potwierdza, że zamierza nadal nadawać priorytet tym kwestiom w ramach polityki unii europejskiej w zakresie praw człowieka.
+przeznaczyć dodatkowe 1 mld eur z funduszy ue na pomoc najbardziej potrzebującym
+ogólnie rzecz biorąc, apelujemy do państw członkowskich, aby okazały zaangażowanie polityczne i nakreśliły długofalową wizję walki z dyskryminacją i antycygańskością.
+ustalenia dokonane na podstawie tabeli wyników 2016 uwzględnia się w ocenie sytuacji w poszczególnych krajach, przeprowadzanej obecnie w kontekście europejskiego semestru 2016.
+ue potwierdza pełne poparcie dla działań międzynarodowego trybunału karnego (mtk) w zakresie walki z bezkarnym rekrutowaniem i wykorzystywaniem dzieci jako żołnierzy.
+producenci leków innowacyjnych zawarli ponad 200 porozumień patentowych z producentami leków generycznych w ue, w których określono warunki zawarcia ugody w trwających postępowaniach lub sporach.
+przestępstwa popełnione przez reżimy totalitarne
+w sprawozdaniu bierze się pod uwagę trzeci strategiczny przegląd w zakresie lepszych uregulowań prawnych przygotowany przez komisję i przyjęty w styczniu ( 6010/09 ); sprawozdanie skupia się na trzech głównych filarach procesu tworzenia lepszych uregulowań prawnych:
+komisja oceniła niemieckie przepisy w tej dziedzinie i doszła do wniosku, że mają one pewne braki pod względem możliwości dostępu, dla osób prywatnych i organizacji pozarządowych, do wymiaru sprawiedliwości − szczególnie jeśli chodzi o decyzje, których dotyczą dyrektywa w sprawie oceny wpływu projektów na środowisko oraz dyrektywa ippc w sprawie emisji przemysłowych.
+jednocześnie europa i afryka muszą dołożyć większych starań, aby przezwyciężyć rozdrobnienie polityki i instrumentów finansowych.
+te wytyczne mają wam ułatwić udzielanie im tej pomocy”.
+komisja podejmie także właściwe kroki, by chronić dochody publiczne w takich dziedzinach jak raje podat kowe i oszustwa w zakresie vat.
+spośród osób, które przyznały, że chciały wyjechać za granicę, 33% stwierdziło, że nie było ich na to stać; blisko dwie trzecie (63%) tych, którzy wyjechali, musiało utrzymywać się z prywatnych funduszy lub oszczędności.
+w związku z tym komisja wzywa to państwo członkowskie, w formie uzasadnionej opinii (stanowiącej drugi etap postępowania w sprawie uchybienia zobowiązaniom państwa członkowskiego), do zapewnienia zgodności przepisów z prawem ue.
+uroczyste posiedzenie w dniu 15 wrze ś nia 2008 r.
+rada dokonała przeglądu stosunków ue z bałkanami zachodnimi oraz najnowszych wydarzeń w tym regionie w związku z planowanym na 14 grudnia przyjęciem przez radę do spraw ogólnych konkluzji w sprawie pakietu dotyczącego rozszerzenia.
+wdrażania zrównoważonego rozwoju.
+kolegium komisarzy przeprowadziło dziś debatę orientacyjną na temat środków mających na celu zmianę systemu opodatkowania przedsiębiorstw na bardziej sprawiedliwy, przejrzysty i sprzyjający wzrostowi gospodarczemu.
+jednocześnie nowe przepisy przewidują także mechanizmy zabezpieczające interesy lokalnych wierzycieli.
+członkowie kr-u omówią opinię dotyczącą ram polityki ue w zakresie klimatu i energii do roku 2030, opracowaną w reakcji na opublikowaną w zeszłym roku zieloną księgę komisji europejskiej na ten temat.
+większość spośród nowych państw członkowskich zobowiązała się do zmniejszenia emisji o 6% lub 8% względem poziomów roku bazowego w tym samym okresie.
+komisarz markos kyprianou, odpowiedzialny za zdrowie i ochronę konsumentów stwierdził: „
+obejmie ona ceremonię mającą na celu uhonorowanie najlepszych krajowych i europejskich inicjatyw językowych (nagrody w ramach projektu european language label , 28 września) i lunch służący propagowaniu korzyści, jakie języki mogą dać małym przedsiębiorstwom i ich pracownikom (29 września).
+podjęcie działań na rzecz ograniczenia obciążeń administracyjnych i opóźnień ;
+w postulowanym przekształceniu ( 6784/12 ) dostosowuje się niektóre przepisy rozporządzenia 450/2008 ustanawiającego kodeks celny w celu uwzględnienia zmian w przepisach celnych i innych stosownych przepisach prawnych i dostosowuje się to rozporządzenie do wymogów wynikających z traktatu lizbońskiego i odracza się jego stosowanie.
+konsultacje potrwają do 6 stycznia 2016 r.
+niedopuszczalna jest sytuacja, w której najwybitniejszym naukowcom często bardziej opłaca się i jest łatwiej przenieść się na drugą stronę atlantyku niż przemieszczać się w obrębie ue.
+w oświadczeniu politycznym wzywa się jednak komisję, by zaproponowała liberalizację reżimu wizowego wobec tych dwóch krajów natychmiast po spełnieniu przez nie wszystkich kryteriów, tak by obywatele tych państw jak najszybciej mogli zacząć korzystać z ruchu bezwizowego (zob. pełny tekst poniżej).
+od tamtej pory do inicjatywy dołączyło pięć kolejnych państw: niemcy, belgia, łotwa, malta i portugalia ( ip/10/628 ).
+równoczesne prowadzenie w tym regionie trzech działań z dziedziny wspólnej polityki bezpieczeństwa i obrony wymagać będzie zwiększonego poziomu koordynacji i interakcji, m.in. pomiędzy podmiotami wojskowymi a cywilnymi.
+twierdziła, że była dyskryminowana ze względu na płeć, status rodzinny i niepełnosprawność.
+poddani badaniom testowym wysoko wyspecjalizowani eksperci mieli trudności w ocenie, czy umowa została zawarta i w którym momencie to nastąpiło.
+państwa członkowskie, wspierane przez instytucje ue, będą miały decydujący głos przy określaniu poziomu ambicji.
+legalność i prawidłowość
+ue uważa karę śmierci za karę okrutną i nieludzką, która nie odstrasza od zachowań przestępczych i która w sposób niedopuszczalny narusza ludzką godność i nietykalność.
+komisja przeznaczy 30 mln eur na wspólne programy badawcze obejmujące metrologię i ekosystemy morza bałtyckiego
+w związku z ostatnimi wydarzeniami, również na ukrainie potrzebne są natychmiastowe działania w celu ochrony środków antykorupcyjnych wprowadzonych w ramach poprzednich reform oraz umożliwienia dalszych postępów.
+skrupulatne prace audytowe przeprowadzane co roku przez komisję i eto ujawniły jedynie pojedyncze przypadki nadużyć.
+potrzeba wykorzystania pełni możliwości w zakresie rozwoju regionu dunaju ma zasadnicze znaczenie z punktu widzenia realizacji wspólnych wyzwań.
+jak wybrano projekty wchodzące w skład sieci bazowej?
+memo/11/801 : konkretne przykłady związane z globalnym podejściem
+na pytanie o określenie najpilniejszych wyzwań dla krajów rozwijających się najczęściej wskazywanymi kwestiami były edukacja, pokój i bezpieczeństwo (obie po 38 %), zdrowie (33 %) oraz woda i infrastruktura sanitarna (31 %).
+ponieważ obejmuje ono w pierwszym rzędzie „podstawowe kwestie” — takie jak walka z korupcją, należyte zarządzanie gospodarcze, wolność słowa i mediów, prawa człowieka i ochrona mniejszości — wzmacnia tym samym stabilność polityczną i gospodarczą zarówno w krajach aspirujących do członkostwa jak i w całej unii europejskiej”.
+jeśli zostanie on utrzymany, taki poziom odłowu będzie miał zgubne skutki dla stada oraz potencjalnie katastrofalny wpływ na sektory przemysłu uzależnione od tych połowów.
+z czego 8,4 % z udziałem kierowców, których stężenie alkoholu we krwi przekraczało 0,5 mg/ml
+komisarz mandelson zapowiada, że październikowy przegląd polityki handlowej będzie się skupiał wokół tezy, zgodnie z którą unia europejska powinna próbować wzmacniać i dopełniać swoje zobowiązanie wobec wielostronnego systemu handlowego wto o nową generację dwustronnych umów o wolnym handlu z głównymi rozwijającymi się rynkami.
+rada wymieniła poglądy na temat programu irlandzkiej prezydencji przygotowanego na okres jej kadencji (od stycznia do lipca 2013 r.)1 .
+podkreśliła również wagę integracji romów w kontekście realizacji celów ustalonych w strategii „europa 2020”.
+kazachstan – produkty stalowe
+aby zwiększyć konkurencyjność ue na arenie światowej należy usunąć wciąż utrzymujące się bariery na jednolitym rynku.
+w przeciwieństwie do emisji z lotów krajowych, emisje powodowane przez lotnictwo międzynarodowe nie są objęte celami protokołu z kioto.
+powinny one zapewnić również podnoszenie świadomości na temat roli krajowych organów ds. równości oraz tego, w jaki sposób obywatele mogą skorzystać z pomocy tych organów oraz z przysługujących im praw w przypadku dyskryminacji.
+ue zachęca również rząd jemenu i wszystkie zainteresowane strony do podjęcia działań, które poprawią klimat polityczny przed rozpoczęciem dialogu narodowego.
+po przeprowadzeniu debaty rada i przedstawiciele rządów państw członkowskich zebrani w radzie przyjęli konkluzje na temat znaczenia dla europy strategii politycznych przyjaznych rodzinie oraz ustanowienia paktu na rzecz rodziny (dok.
+przechodząc teraz do kwestii strategii przedakcesyjnej, należy podkreślić, że mamy tu do czynienia z różnorodnymi instrumentami i licznymi państwami-beneficjentami.
+rada z zadowoleniem przyjmuje postępy, które od 2010 wciąż dokonują się w negocjacjach w sprawie przystąpienia islandii do ue, przyjmuje do wiadomości ustalenia przedstawione w dniu 10 października 2012 r. przez komisję radzie i parlamentowi europejskiemu w sprawozdaniu z postępu prac dotyczącym islandii i odsyła do swoich konkluzji w sprawie rozszerzenia z dnia 11 grudnia 2012 r.”
+jednakże luksemburg, republika czeska i (w mniejszym stopniu) portugalia dokonały znacznych postępów w zmniejszaniu deficytu w ostatnim półroczu.
+rada europejska zdecydowanie potępia poważne incydenty, jakie miały miejsce około 28 maja na błękitnej linii, apeluje do wszystkich stron o powściągliwość w działaniach i przypomina im o obowiązku pełnego poszanowania błękitnej linii, w tym stosownych obszarów powietrznych.
+w związku z tym, że sytuacja wymaga trwałego zaangażowania onz oraz wsparcia ze strony społeczności międzynarodowej i wszystkich podmiotów z regionu, ue zachęca wszystkie państwa sąsiadujące z birmą do utrzymania nacisków na rzecz procesu reform, który byłby wiarygodny i oparty na powszechnym uczestnictwie.
+analiza konieczności zwiększenia finansowania przez ue w szczególności zmierzającego do łatwiejszej integracji energii odnawialnej z siecią.
+komisja już w 1997 r. zaangażowała się w politykę ekologicznego prowadzenia działalności, w ramach której przeprowadziła ocenę i sporządziła sprawozdanie dotyczące wpływu jej działań na środowisko poprzez pilotażową realizację rozporządzenia emas.
+jedną z zasad funduszu powierniczego jest podejmowanie dialogu politycznego z partnerami afrykańskimi, aby opracować strategiczne i skuteczne interwencje.
+w pierwszej kolejności sąd potwierdził, że – jak orzekł już w wyrokach w sprawie yusuf oraz w sprawie kadi[3] – wspólnota europejska ma kompetencje do zarządzenia zamrożenia funduszy osób fizycznych w ramach walki z międzynarodowym terroryzmem.
+„komisja europejska podjęła rozmowy z rządem francuskim w tej kwestii tuż po przerwie letniej.
+normy te obejmują utworzenie systemu identyfikacji pochodzenia narządów ludzkich oraz systemu zgłaszania istotnych zdarzeń i reakcji niepożądanych.
+zgodnie z unijnymi przepisami każde państwo ue może przesłać nakaz konfiskaty do innego państwa, w którym podmiot nakazu mieszka, posiada majątek lub uzyskuje przychody.
+w dyrektywie znalazł się jednak zapis, zgodnie z którym operatorzy zapewniający usługi na żądanie powinni wspierać utwory europejskie współuczestnicząc finansowo w ich produkcji i w zakupie praw lub ułatwiając odbiorcom dostęp do tych utworów.
+pierwsze posiedzenie nowego unijnego organu regulacyjnego ds. telekomunikacji
+rada odnotowała przygotowania do szczytu, który ma się odbyć w pradze 7 maja i na którym ma zostać ogłoszone partnerstwo wschodnie ue z armenią, azerbejdżanem, białorusią, gruzją, republiką mołdowy i ukrainą.
+tabela 1: procent ofiar śmiertelnych na drogach, w wypadkach z udziałem co najmniej jednego kierowcy, którego stężenie alkoholu we krwi przekraczało dopuszczalny limit (o ile nie określono inaczej).
+dąży się w nim również do zwiększenia skuteczności działań zewnętrznych ue i jest on spójny z realizacją globalnej strategii.
+z kolei w ramach assure rozważa się sposoby dostosowania badań przesiewowych w kierunku raka piersi do potrzeb pacjentki oraz opracowanie rozwiązań alternatywnych do mammografii – nieskutecznej w wykrywaniu raka u kobiet o dużej gęstości tkanki piersi.
+możliwość złożenia podpisu przez obywateli unii mieszkających poza ue będzie zależeć od państwa członkowskiego, którego obywatelstwo posiadają.
+organ ten uznał, że niezależnie od jej rzeczywistego charakteru, transakcja, której wyłącznym celem jest uniknięcie zapłaty podatku vat, jako taka nie stanowi „dostawy” lub „świadczenia usług” ani też czynności dokonanej w ramach „działalności gospodarczej” do celów podatku vat.
+praca na czarno: badania pokazują, że to powszechny problem
+utrzymywanie „obszaru aktywności pro-ekologicznej” zajmującego co najmniej 7 proc. użytków rolnych (z wyłączeniem trwałych użytków zielonych), tj. miedz, żywopłotów, drzew, gruntów ugorowanych, elementów krajobrazu, biotopów, stref buforowych i powierzchni zalesionej.
+łotwa: inicjatywa think small first została opracowana przez łotewską izbę przemysłowo-handlową (lcci), aby wydobyć łotwę z kryzysu gospodarczego.
+zbadać w ramach procedury komitologii wykorzystanie pewnych kryteriów, które mogłyby ułatwić dalsze dostosowania opłat za wspólnotowe znaki towarowe, oraz możliwe sposoby ich zastosowania; kryteria te powinny w szczególności przyczyniać się do zrównoważenia budżetu uhrw w długim okresie, zapewniać stałą wysoką jakość działań uhrw i uwzględniać współpracę uhrw z urzędami ds. znaków towarowych poszczególnych krajów członkowskich; kryteria te powinny być zgodne z zasadami ostrożności i należytego zarządzania finansami; dodatkowo kryteria te powinny działać na rzecz utrzymania wiarygodności i przejrzystości systemu dla użytkowników oraz przewidywalności jego przyszłych dostosowań;
+w przypadku terenów przybrzeżnych stopień zgodności z wartościami obowiązkowymi obniżył się ze 100 % w 2003 r. do 97,4 %.
+wybranym konsumentom zostanie przesłane niewielkie urządzenie do podłączenia do ich domowego internetu.
+aby ugruntować ożywienie i stworzyć więcej miejsc pracy, musimy kontynuować reformy gospodarcze.”.
+zapewniłoby to większe pole manewru w dostosowywaniu interwencji i pozwoliło lepiej ukierunkować inwestycje z efrr na konkurencyjność terytorialną.
+dyrektywa wymaga również, aby konsumenci mieli dostęp do usług biura numerów oraz spisów abonentów, dostęp do publicznych automatów telefonicznych oraz do specjalnych środków, jeżeli są oni niepełnosprawni.
+musimy także zakończyć tworzenie wewnętrznego rynku energii, udoskonalić naszą infrastrukturę, podnieść efektywność energetyczną i lepiej wykorzystywać nasze własne zasoby energetyczne.
+eto ustalił, że co najmniej jedna trzecia kredytów została udzielona mśp, które mogły uzyskać wymagane finansowanie bez korzystania ze wsparcia w postaci środków publicznych, a jedynie 12% kredytów przyznano mśp na realizację innowacyjnych inwestycji.
+hiszpania przyznała, że jej władze nadal pracują nad przygotowaniem środków niezbędnych do zastosowania się do przedmiotowej dyrektywy.
+zwiększanie elastyczności narzędzi i procedur finansowych oraz możliwości szybkiego reagowania;
+co to jest zielona księga?
+rząd sri lanki powinien także dotrzymać zobowiązań podjętych na rzecz poprawy warunków w obozach dla przesiedleńców wewnętrznych, obejmujących poprawę dostępności opieki medycznej, przejrzystość procesu rejestracji, kontrolę międzynarodową oraz swobodę poruszania się w obrębie obozów i poza nimi.
+europejski rzecznik praw obywatelskich (w art. 195);
+urowsze normy kontroli zakładów w celu zapewnienia skuteczniejszego wdrażania przepisów dotyczących bezpieczeństwa.
+choć niektóre państwa członkowskie obniżyły ogólny poziom pomocy, określony w strategii lizbońskiej cel polegający na zmniejszeniu pomocy nie został zrealizowany w skali całej unii europejskiej.
+komunikat ten oznacza, że ue i japonia rozpoczną teraz prawną weryfikację tekstu, zwaną również przeglądem prawnym.
+bruksela, 16 czerwca 2011 r. z uwagi na niepełne wdrożenie przepisów dyrektywy w sprawie emerytur pracowniczych na poziomie ustawodawstwa krajowego komisja europejska zadecydowała dziś o pozwaniu polski do unijnego trybunału sprawiedliwości.
+poza nielicznymi wyjątkami, istniejące umowy dwustronne okazały się nieskuteczne.
+sprawozdanie to służy nam jako roczna kontrola faktycznego stanu bezpieczeństwa produktów na rynku ue z myślą o jej obywatelach.
+jeżeli nie udzielą zadowalających wyjaśnień, komisja może skierować sprawę do trybunału sprawiedliwości ue.
+przepisy te wprowadzają jednak odmienne traktowanie do celów podatkowych pożyczek nieściągalnych udzielonych osobom zamieszkałym w zjednoczonym królestwie i poza nim.
+dwadzieścia jeden języków posiada status języków urzędowych i roboczych w instytucjach europejskich.
+plan wizyty
+komunikat prasowy: komisja wytycza drogę do cyfryzacji europejskiego przemysłu
+od 2013 r. liczba młodych bezrobotnych w ue spadła o 1,6 mln, a liczba młodzieży niekształcącej się, niepracującej ani nieszkolącej się zmniejszyła się o 900 tys.
+zdrowie roślin
+janez lenarczicz sekretarz stanu w rządowym biurze do spraw europejskich
+gratuluję miastom viborg w danii i monteverde we włoszech za ich działania i mam nadzieję, że wiele innych miast pójdzie ich śladem.
+zagrożenia dla wzrostu gospodarczego są zrównoważone.
+rozstrzyganie sporów handlowych z libanem i tunezją
+na podstawie swojej oceny sytuacji komisja powróci do tej kwestii na późniejszym posiedzeniu rady, jeśli będzie to konieczne.
+zapoczątkowany dziś sondaż na temat zrównoważonej polityki energetycznej w regionach i miastach stanowi pierwszy etap naszej inicjatywy mającej na celu zebranie i rozpowszechnienie sprawdzonych rozwiązań w zakresie przeciwdziałania zmianie klimatu.
+liechtensteinem i szwajcarią: w sprawie warunków uczestnictwa w działaniach fronteksu, europejskiej agencji zarządzania współpracą operacyjną na zewnętrznych granicach ( 5707/10 ).
+maría luz rodríguez fernández sekretarz stanu ds. zatrudnienia
+jestem przekonany, że zarówno państwa członkowskie, jak i parlament europejski szybko przyjmą tę korektę budżetu ue”.
+dlatego też zaproponowano im stworzenie sieci wspierającej realizację tych celów.
+te dodatkowe działania powinny znacząco poprawić konkurencyjność rolników na rynku (tj. przynieść znaczące usprawnienia).
+wzrost i zatrudnienie na pierwszym miejscu agendy g-20
+rada przyjęła do wiadomości sprawozdanie z postępu prac odnoszące się do egzekwowania dyrektywy w sprawie delegowania pracowników i do rozporządzenia w sprawie prawa do podejmowania działań zbiorowych (10571/12 + cor 1 ).
+młodych innowacyjnych przedsiębiorców;
+moją szczególną otuchę budzi fakt, że trzy pierwsze nagrody zdobyli studenci z nowych państw członkowskich.”
+umowa chroni niektóre wrażliwe sektory (np. telewizyjny, radiowy i filmowy, zdrowia publicznego i edukacji, usług społecznych i dystrybucji wody), w przypadku których nie podjęto żadnych zobowiązań.
+do chwili obecnej luksemburg, polska i portugalia nie ustanowiły rejestrów krajowych i nie połączyły ich z rejestrami innych państw, a zatem nie wykonały wyroków trybunału.
+schorzenia te ograniczają rentowność przedsiębiorstw i powiększają koszty społeczne ponoszone przez państwo.
+przedstawi ona również sprawozdanie na temat wdrożenia nowego projektu pilotażowego, na który przeznaczono kwotę 5 mln euro i który został włączony przez parlament europejski do budżetu na rok 2009.
+europejski plan działań w sektorze obrony
+zobowiązanie do dalszych postępów w zawieraniu umów o partnerstwie w sprawie zrównoważonych połowów z państwami nadbrzeżnymi.
+większość delegacji poparła kompromisową propozycję prezydencji w sprawie kabotażu.
+podczas gdy większość respondentów zdaje sobie sprawę z kluczowej roli bezpiecznego seksu i deklaruje jego praktykowanie, w porównaniu do badań eurobarometru z 2002 r. coraz mniej obywateli ue przyznaje się do stosowania środków zabezpieczających.
+zapewnia on łatwy dostęp do informacji na temat uniwersytetów w 36 państwach, w tym we wszystkich państwach członkowskich ue.
+komisja ocenia przedstawiony przez polskę program konwergencji na lata 2004-2007 i zaleca dalsze działania w ramach procedury nadmiernego deficytu
+danuta hübner zaznaczyła, że komisja potrzebuje uwag ze strony tych regionów, aby wzbogaciły one refleksję komisji związaną z perspektywami finansowymi po 2013 roku.
+dalsze informacje można znaleźć w memo/10/88 .
+nota informacyjna dotycząca działań komisji w dziedzinie obywatelstwa ue w latach 2013 – 2016
+niskie tempo reform w zakresie finansowego zarządzania środkami ue ma ujemny wpływ na wiarygodność budżetu ue jako całości.
+przewiduje się, że wzrost inwestycji przekroczy 3 % w latach 2006 i 2007.
+ataki na pracowników pomocy humanitarnej są jawnym naruszeniem międzynarodowego prawa humanitarnego, które ma na celu ograniczenie skutków konfliktów zbrojnych dla ludności cywilnej.
+celem interaktywnego seminarium organizowanego przez grupę pracodawców ekes-u jest nawiązanie dialogu między młodymi europejskimi przedsiębiorcami i najważniejszymi podmiotami unijnymi kształtującymi europejskie środowisko biznesu.
+mając to na względzie, komisja europejska zaproponowała dziś usprawnienie i skrócenie czasu podejmowania krajowych decyzji dotyczących ustalania cen i refundacji leków.
+ponadto rozdział pomiędzy zasadą współzależności a działaniami rolnośrodowiskowymi nie zawsze jest jasny.
+ministrowie z zadowoleniem przyjęli ogólną strukturę programu.
+pierwsze doświadczenia wskazują, że zapotrzebowanie znacznie przewyższa środki, które są dostępne w ramach programu.
+instrument gwarancji pożyczkowej dla projektów transeuropejskiej sieci transportowej
+zmieniony tekst rozporządzenia uwzględnia także informacje na temat bułgarii zawarte w rozporządzeniu rady (we) nr 1791/2006 zmieniającym rozporządzenie (we) nr 1346/2000 z uwagi na przystąpienie do ue bułgarii i rumunii.
+jednak walka ze skutkami budżetowymi starzenia się społeczeństw stanowi główne wyzwanie polityczne dla całej ue.
+dzięki europejskiemu programowi galileo europa bierze dziś udział w wyścigu kosmicznym.
+aby lepiej poinformować obywateli o przepisach dotyczących kwestii spadkowych, rada notariatów unii europejskiej, przy wsparciu komisji europejskiej, stworzyła stronę internetową ( www.successions-europe.eu ) dostępną w 22 językach ue oraz w języku chorwackim.
+nieuwzględniania wydatków związanych z wejściem w życie traktatu z lizbony;
+rada przyjęła rozporządzenie w sprawie przydziału kontyngentów taryfowych mających zastosowanie do wywozu drewna z federacji rosyjskiej do unii europejskiej (59/12 ).
+ostrzegł, że „droga do nowej wspólnej polityki rolnej wciąż jeszcze jest długa, gdyż jej punktem docelowym jest polityka odpowiadająca oczekiwaniom obywateli europejskich”.
+to już szósta edycja konkursu o tytuł „zielonej stolicy europy”.
+stworzyliśmy centrum, które świadczy usługi doradcze i udziela pomocy technicznej projektodawcom.
+musimy sprawić, aby reformy, w szczególności w zakresie praworządności, były wdrażane w sposób bardziej zdecydowany i przynosiły trwałe rezultaty.
+przy obecnych sztywnych przepisach osiągnięcie nadwyżki w wysokości 1 proc. to najkorzystniejszy z możliwych wyników”.
+handel uprawnieniami do emisji gazów cieplarnianych: komisja przyjmuje polski plan rozdziału uprawnień na lata 2008-2012
+álvaro santos pereira minister gospodarki i zatrudnienia
+rada odnotowuje, że komisja (eurostat) odgrywa przewodnią rolę w przygotowaniu analizy stosowności międzynarodowych standardów rachunkowości sektora publicznego w przypadku państw członkowskich, zgodnie z konkluzjami rady z dnia 20 czerwca 2011 r. oraz dyrektywą rady w sprawie wymogów dotyczących ram budżetowych2 .
+rada z zadowoleniem przyjmuje już wykonane przez instytucje prace w dziedzinie alternatywnych metod finansowania i oczekuje najbliższego sprawozdania komisji na ten temat.
+z odpowiedzi w ramach konsultacji wynika również, że jednolity rynek kapitałowy ułatwiłby wspieranie bardziej transgranicznego podziału ryzyka, stworzenie głębszych i bardziej płynnych rynków oraz zróżnicowanie źródeł finansowania gospodarki.
+we współczesnym świecie możemy wspólnie wywrzeć większy wpływ, niż którekolwiek państwo członkowskie oddzielnie.
+umowy te są niezgodne z prawem europejskim, ponieważ zawierają klauzule dotyczące przynależności państwowej niezgodne z postanowieniami traktatu o swobodzie przedsiębiorczości.
+państwa członkowskie będą mogły wdrożyć te zalecenia przy wsparciu z europejskiego funduszu społecznego .
+rada przeprowadziła wymianę poglądów na temat sytuacji w gruzji, szczególnie w odniesieniu do nadchodzących wyborów parlamentarnych w gruzji w maju 2008 roku.
+gdy rada europejska zatwierdzi wspomniane wytyczne i zalecenia, zostaną one przyjęte przez radę bez dalszej dyskusji.
+obecny rozwój technologiczny może stworzyć nowe możliwości gospodarcze dla przedsiębiorstw, nowe miejsca pracy i nowe usługi konsumpcyjne, jeśli ustanowimy właściwe ramy wspomagające te procesy.
+prezydencja chciałaby wypracować porozumienie polityczne przez końcem czerwca.
+punkty kontaktowe dla społeczeństwa obywatelskiego w komisji, które ułatwiłyby dostęp do informacji organizacjom pozarządowym i uczyniłyby go bardziej sprawiedliwym;
+komisja pracuje nad utworzeniem europejskiego obserwatorium ds. susz, aby zintensyfikować przygotowania do poważnych susz i ograniczyć ich skutki.
+wysokie wydatki związane z elastycznością rynku pracy i bezpieczeństwem socjalnym same w sobie nie prowadzą jednak do automatycznego osiągnięcia lepszych wyników.
+płatności mogą być również oszukańczo dokonywane za pomocą fałszywych lub skradzionych kart wykorzystywanych do zapłaty w sklepach lub do wypłaty gotówki w bankomatach bądź poprzez włamanie do systemów informatycznych służących do realizacji płatności, na przykład poprzez manipulowanie w punktach sprzedaży w odniesieniu do płatności kartą lub bezprawne zwiększenie limitów karty kredytowej, aby uniemożliwić wykrycie przekroczenia kosztów.
+w trakcie czterech dyskusji panelowych na najwyższym szczeblu przedstawiciele świata polityki, kultury, nauki i zorganizowanego społeczeństwa obywatelskiego debatowali nad przejawami europejskiej tożsamości.
+rada przeprowadziła debatę dotyczącą kierunków polityki i skoncentrowała się w niej przede wszystkim na następujących kwestiach:
+umowa przewiduje też otwarcie rynków usług, w szczególności usług finansowych, handlu elektronicznego, telekomunikacji i transportu.
+węgierskie organy ds. zdrowia zakazały jej prowadzenia tej działalności na tej podstawie, iż na węgrzech towary te nie mogą być sprzedawane przez internet.
+przedmiotem xiii corocznej konferencji przewodniczących regionów najbardziej oddalonych jest w tym roku miejsce najbardziej oddalonych regionów europejskich w rozszerzonej europie, stojącej przed nowymi wyzwaniami.
+rada przyjęła konkluzje w sprawie wzmocnionego systemu patentowego w europie i osiągnęła porozumienie co do przyszłego rozporządzenia w sprawie patentu ue (zwanego wcześniej patentem „wspólnotowym”).
+maria damanaki, europejska komisarz ds. gospodarki morskiej i rybołówstwa, przedstawiła dzisiaj wniosek komisji „wiedza o morzu 2020”.
+niniejsze sprawy należą do szeregu skarg o stwierdzenie uchybienia zobowiązaniom państwa członkowskiego1 wniesionych przez komisję przeciwko kilku państwom członkowskim z uwagi na naruszenie ich zobowiązań wynikających z dyrektyw regulujących funkcjonowanie sektora kolejowego, których podstawowym celem jest zapewnienie przedsiębiorstwom kolejowym sprawiedliwego i niedyskryminującego dostępu do sieci kolejowej2 .
+ulepszać istniejące narzędzia służące diagnozie i ocenie, zwłaszcza przeprowadzając wspólne analizy (na przykład na podstawie wspólnotowego profilu sposobu sprawowania rządów, wspólnotowego wykazu podstawowych przyczyn konfliktów i innych narzędzi) i wymiany informacji między państwami członkowskimi, komisją i sekretariatem generalnym rady (sgr);
+kopalnie uzależnione od dotacji operacyjnych są położone głównie, lecz nie tylko, w zagłębiu ruhry w niemczech, w północno-zachodniej hiszpanii i w dolinie jiu w rumunii.
+sędziowie wybierają spośród swojego grona prezesa trybunału na odnawialną trzyletnią kadencję.
+tytuł ten przyznaje się miastom na podstawie zaproponowanego przez nie programu kulturalnego, który musi się charakteryzować wyraźnym wymiarem europejskim, angażować szeroki krąg odbiorców i wpisywać się w długotrwały rozwój uczestniczących w programie miast.
+w odniesieniu do komunikatu komisji europejskiej dotyczącego planu d grupa wyraziła rozczarowanie, że plan ten nie jest bardziej ambitny, że nie zawiera przekonującego przesłania o treściach, jakie należy przekazać obywatelom, a także skrytykowała fakt, że nie przewidziano żadnej roli dla europejskich organizacji społeczeństwa obywatelskiego.
+jeżeli irlandia ratyfikuje traktat z lizbony, niniejsze oświadczenie zostanie dołączone do irlandzkiego dokumentu ratyfikacyjnego.
+solar impulse, pierwszy samolot przeznaczony do całodobowych lotów bez użycia paliwa i niewywołujący emisji co2, jest wyrazem potencjału nowych technologii w dziedzinie energooszczędności i wytwarzania energii odnawialnej.
+zaproponowane dzisiaj pomysły i warianty wynikają bezpośrednio ze sprawozdania komisji europejskiej (z 8 maja 2015 r.) w sprawie wyborów do parlamentu europejskiego w 2014 r., w którym zobowiązano się do określenia sposobów dalszego wzmacniania wymiaru europejskiego i legitymacji demokratycznej procesu podejmowania decyzji w ue oraz do zbadania dalszych przyczyn utrzymującej się niskiej frekwencji w niektórych państwach członkowskich i rozwiązania tego problemu.
+w rzeczywistości sami podpisali protokół z kioto i wywierali presję na kongres i prezydenta, by ci zdali sobie sprawę, jak ważne dla ratowania planety są inicjatywy w zakresie ochrony klimatu”.
+meg hillier parlamentarna podsekretarz stanu ds. tożsamości
+jeżeli do tego nie dojdzie, państwa członkowskie powinny podjąć działania w zakresie egzekwowania przepisów.
+jeżeli polska nie udzieli zadawalającej odpowiedzi na uzasadnioną opinię w terminie dwóch miesięcy, komisja może zadecydować o skierowaniu sprawy do trybunału sprawiedliwości wspólnot europejskich.
+nowa strategia w sprawie normalizacji
+nie możemy dłużej tolerować takiego stanu rzeczy.
+w rozporządzeniu doprecyzowano, że monety przeznaczone do obiegu powinny w większości przypadków być emitowane zgodnie ze swoją wartością nominalną.
+rozważania oparte na operacyjnym wykorzystaniu danych, które wydaje się mieć dwa aspekty: aspekt pierwszy dotyczy działania przebiegającego w czasie rzeczywistym związanym z przybyciem samolotu, a drugi odnosi się do działań późniejszych związanych z prowadzeniem dochodzenia,
+rada rozszerzyła także wykaz konwencji, w przypadku których państwo portu musi przeprowadzać kontrole, dodając dwie konwencje: o kontroli szkodliwych systemów przeciwporostowych stosowanych na statkach oraz o odpowiedzialności cywilnej za szkody spowodowane zanieczyszczeniem olejami bunkrowymi; powinno to przyczynić się do dalszego zwiększania poziomu ochrony środowiska w portach ue.
+wyraźną wartość dodaną przyniosłoby również zwiększenie koordynacji działań humanitarnych i opracowanie wspólnych działań w zakresie bezpieczeństwa żywnościowego i pomocy w przypadku klęsk żywiołowych.
+decyzja kanady była poprzedzona intensywnymi działaniami dyplomatycznymi i stałym zaangażowaniem na szczeblu politycznym i technicznym pomiędzy ue a kanadą oraz dwoma zainteresowanymi państwami członkowskimi.
+jeżeli państwo członkowskie w przewidzianym terminie nie wdroży do swojego prawa przepisów unijnych zgodnie z ustaleniami przyjętymi w radzie, komisja może zwrócić się do trybunału o nałożenie sankcji finansowych w pierwszym postępowaniu – nie musi już wszczynać przed trybunałem odrębnego postępowania w sprawie sankcji.
+w jaki sposób ue zapewni, aby plan faktycznie przełożył się na tworzenie godnych miejsc pracy i zrównoważony wzrost gospodarczy?
+oczekuje się, że w konferencji weźmie udział około 160 osób, w tym maud olofsson, wicepremier szwecji, oraz przedstawiciele rządów państw członkowskich i kandydujących, a także posłowie do parlamentu europejskiego, przedstawiciele komisji europejskiej i innych organizacji.
+i, rzecz jasna, większość z nich w odpowiednim czasie wstąpi do strefy euro.
+będzie to kontynuacja szczytu, który odbył się w waszyngtonie w dniu 15 listopada; było to pierwsze spotkanie państw grupy g-20 zorganizowane na szczeblu szefów państw lub rządów.
+jest to pytanie polityczne i społeczne.
+dzięki przeprojektowaniu szanse przetrwania przez statki wejścia na mieliznę lub kolizji wzrosłyby nawet o 20 proc.
+rada przyjęła decyzję upoważniającą francję do przedłużenia stosowania obniżonej stawki podatku akcyzowego na rum tradycyjny produkowany we francuskich departamentach zamorskich, co ma chronić sektor (12293/07).
+przystępniejsze cenowo i sprawniejsze transgraniczne dostarczanie przesyłek
+szwajcaria – stowarzyszenie z programem europejskiej wspólnoty energii atomowej w zakresie działań badawczych w dziedzinie jądrowej
+na posiedzeniu z dnia 9 maja rada i państwa członkowskie podjęły decyzję w sprawie kompleksowego pakietu środków mających na celu zachowanie stabilności finansowej w europie, w tym w sprawie europejskiego mechanizmu stabilizacji finansowej opiewającego na łączną kwotę do 500 mld eur.
+transgraniczne spory prawne: komisja kieruje do trybunału sprawę przeciwko cyprowi i niderlandom w związku z brakiem transpozycji przepisów ue
+start
+strategia jednolitego rynku cyfrowego obejmuje 16 inicjatyw, które zostaną przedstawione do końca bieżącego roku.
+podręcznik zawiera wyjaśnienia, narzędzia i przykłady dobrego stosowania dyrektywy.
+(ii) przewidywać odpowiednie środki wyrównawcze w celu ograniczenia zakłóceń konkurencji spowodowanych pomocą oraz
+odbył też we francji płatny staż w zakresie rehabilitacji ucha wewnętrznego.
+niezależnie od tego, czy porozumienie co do kolejnych wrf zostanie osiągnięte czy nie, zostaną przygotowane ramowe pułapy finansowe na rok 2014, a zatem budżet będzie mógł zostać przyjęty zgodnie z traktatem.
+2010 r. będzie europejskim rokiem zwalczania ubóstwa i wykluczenia społecznego
+rada europejska, gromadząca najważniejszych przywódców unii, jest raczej organem strategicznym.
+amunicja odgrywa decydującą rolę w eskalacji i wydłużaniu się konfliktów zbrojnych oraz w szerzeniu się przestępczości zorganizowanej.
+przewodniczący eoc patrick hickey zaznaczył, że jest to program finansowania „o historycznym znaczeniu”.
+deklaracja w sprawie afganistanu
+w jaki sposób strategia zostanie zastosowana w praktyce?
+rada przeprowadziła wymianę poglądów w sprawie przygotowania do nowego cyklu strategii lizbońskiej na rzecz wzrostu gospodarczego i zatrudnienia, który rozpocznie się w 2008 roku.
+priorytet 4 – wsparcie długoterminowej realizacji sieci ten-t, w szczególności korytarzy transportowych – wybrano 7 projektów, którym przyznano 16,35 mln euro dofinansowania;
+rada przyjęła konkluzje w sprawie dalszego usprawniania skutecznej transgranicznej wymiany informacji na temat egzekwowania prawa.
+określa on jednak ogromne ryzyko związane z coraz większym zmęczeniem walką z terroryzmem.
+w roku 2006 wzmocnieniu uległa tendencja do skracania się czasu trwania postępowań, zaobserwowana już w latach 2003-2005.
+co więcej, ze względu na kryzys gospodarczy wiele kobiet, które straciły pracę, mogły wykorzystać swoje umiejętności i wiedzę, założyć własną firmę i stworzyć dla siebie miejsce pracy.
+jest to wyważona propozycja, która ułatwia swobodny przepływ pracowników i ochronę ich praw, a jednocześnie pomaga organom krajowym, wzmacniając ich narzędzia do walki z zagrożeniem nadużyć lub oszustw.
+najnowsze sprawozdanie komisjiprzedstawiające korzyści z procesu bolońskiego potwierdza ten pozytywny wniosek oraz wskazuje na duży postęp, szczególnie w kwestii reform strukturalnych.
+biorąc pod uwagę fakt, że nie osiągnięto jednomyślności, prezydencja będzie teraz rozważać, w jaki sposób najlepiej kontynuować prace.
+zaproponowała ramy prawne w zakresie zdrowia zwierząt, przez ustanowienie ogólnych zasad, określenie ról i obowiązków oraz położenie nacisku na profilaktykę i kontrolę chorób, zgodnie z innymi odpowiednimi politykami wspólnoty;
+planuje się, że na podstawie wyniku debaty między instytucjami komisja przedstawi w lipcu 2011 roku wnioski ustawodawcze dotyczące wpr do 2020 roku.
+(iv) po czwarte, jeżeli powszechne stosowanie zobowiązań do jednomarkowości prowadzi do wykluczania konkurencyjnych marek z rynku, organy ochrony konkurencji mogą wycofać przywilej wyłączenia grupowego w odniesieniu do poszczególnych producentów samochodów;
+takie rozwiązanie pomoże także uchronić małżonków i ich dzieci przed skomplikowanymi, długotrwałymi i uciążliwymi procedurami.
+w październiku zeszłego roku komisja przesłała oficjalne wezwanie do usunięcia uchybienia, a teraz przesyła uzasadnioną opinię (stanowiącą drugi etap postępowania w sprawie uchybienia zobowiązaniom państwa członkowskiego), na którą niemcy muszą odpowiedzieć w terminie dwóch miesięcy.
+głównym celem przeglądu obecnie obowiązującego obwieszczenia komisji w sprawie gwarancji jest udzielenie dodatkowych wytycznych oraz zapewnienie państwom członkowskim i zainteresowanym podmiotom pewności prawnej przy ocenie, czy gwarancja zawiera element pomocy państwa.
+załączniki do wniosku w sprawie rozporządzenia.
+ci, którzy już zmienili zawód i pracowali w innym kraju będą obecni, aby służyć radą.
+w konkluzjach rada podkreśla m.in. potrzebę zachowania otwartego i neutralnego charakteru internetu i uznaje neutralność sieci za cel polityki.
+wgranie 2 zdjęć dziennie (+/- 2mb na zdjęcie)
+region otwarty na partnerstwa
+w kwietniu 2012 r. opublikowany został komunikat „strategia na rzecz e-zamówień” ( ip/12/389 ), w którym przedstawiono strategię przejścia na system e-zamówień.
+memo: pytania i odpowiedzi na temat przeglądu przepisów dotyczących koordynacji zabezpieczenia społecznego
+wzmocnienia przepisów antynikotynowych środkami dodatkowymi, np. służącymi ochronie dzieci, wspierającymi osoby starające się rzucić palenie oraz obrazkowymi ostrzeżeniami na opakowaniach wyrobów tytoniowych
+zwiększenie zatrudnienia młodych ludzi w sektorze poprzez udoskonalenie programów praktyk zawodowych i procesów rekrutacji młodzieży
+stworzenie europejskiej służby działań zewnętrznych jest wymarzoną okazją do poprawy spójności i rozwinięcia zintegrowanego systemu rozwiązywania konfliktów na całym świecie.
+komisja przedstawi parlamentowi europejskiemu i radzie sprawozdanie na temat dalszych działań najpóźniej do jesieni 2018 r.
+w roku 2006 w pekinie podpisano protokół ustaleń w dziedzinie polityki regionalnej pomiędzy komisją europejską a krajową komisją rozwoju i reform, głównym urzędem chrl odpowiedzialnym za zarządzanie makroekonomiczne i kształtowanie polityki w zakresie rozwoju gospodarczego i społecznego.
+[5] dyrektywa 2002/49/we parlamentu europejskiego i rady z dnia 25 czerwca 2002 r. odnosząca się do oceny i zarządzania poziomem hałasu w środowisku.
+określenie i rozpowszechnianie dobrych praktyk i czynników sukcesu długoterminowych praktyk zawodowych.
+opracowanie wspólnych definicji poważnych i drobnych obrażeń ciała pod kątem opracowania docelowego poziomu, do jakiego należy ograniczyć ich liczbę, i tym samym opracowania ogólnoeuropejskiego docelowej maksymalnej liczby ofiar wypadków, ujętej w nowych wytycznych w dziedzinie bezpieczeństwa drogowego na terytorium unii na lata 2011-2020;
+zaproszenia do składania wniosków zostały ogłoszone w ramach trzech oddzielnych programów prac:
+podejście to ułatwiło nadanie dialogom charakteru prawdziwie europejskich wydarzeń, przyczyniając się do rozwoju europejskiej przestrzeni publicznej.
+w planach tych określono kroki, jakie należy podjąć, aby wdrożyć gwarancję dla młodzieży, harmonogram kluczowych reform i działań, rolę organów publicznych i innych partnerów oraz sposób finansowania (szczegóły można znaleźć tutaj).
+głównym przesłaniem konferencji było żądanie rozpoczęcia szerokich konsultacji na temat edukacji jako narzędzia walki z ubóstwem i wykluczeniem społecznym.
+w konkluzjach tych znajdą się stanowisko ue oraz postulaty polityczne opracowane z myślą o szczycie onz w nowym jorku.
+elementem kampanii są także nagrody za dobrą praktykę przyznawane organizacjom, które w wyjątkowy i innowacyjny sposób przyczyniły się do walki ze schorzeniami układu mięśniowo-szkieletowego.
+trybunał podkreślił przede wszystkim, że nawet znaczne opóźnienie, nie wystarcza dla uznania lotu za odwołany.
+w ten sposób, poprzez obydwa te wymogi, wydanie pozwolenia uzależnione jest od przestrzegania określonych progów udziału w rynku i wpływu na istniejący handel detaliczny, po przekroczeniu których niemożliwe jest otwarcie dużej placówki handlowej.
+zwykłe spędzanie czasu na uczeniu się już nie wystarcza.
+do końca 2007 r. należy skrócić o połowę czas potrzebny na założenie działalności gospodarczej, a w późniejszym okresie ograniczyć go do maksymalnie siedmiu dni.
+chociaż region saary nie jest tradycyjnie kojarzonym z badaniami kosmosu, udało mu się wytworzyć szczególne know-how, cenne dla przemysłu kosmicznego.
+taka wykładnia rozporządzenia – która nie odsyła do krajowych systemów prawnych – zapobiega powstawaniu rozbieżnych między państwami członkowskimi rozwiązań, które mogłyby negatywnie wpłynąć na osiągnięcie celu rozporządzenia polegającego na ujednoliceniu przepisów dotyczących jurysdykcji.
+unia europejska z zadowoleniem przyjmuje oficjalne przystąpienie beninu, w dniu 5 lipca 2012 r., do drugiego protokołu fakultatywnego z 1989 roku do międzynarodowego paktu praw obywatelskich i politycznych w sprawie zniesienia kary śmierci.
+austriacka izba handlowa z siedzibą w wiedniu została wyróżniona za kampanię informacyjną, której celem było przeciwstawienie się przeważającemu negatywnemu nastawieniu do ue poprzez bezpośredni dialog z obywatelami, podnoszący świadomość korzyści płynących z tożsamości europejskiej i członkostwa w ue.
+unia europejska z dużym zadowoleniem przyjmuje fakt, że wybory do zgromadzenia ustawodawczego w nepalu w dniu 10 kwietnia przebiegły w ogólnie pokojowej i zdyscyplinowanej atmosferze.
+w przypadku państw członkowskich strefy euro uwzględniają one również zalecenie w sprawie polityki gospodarczej strefy euro.
+na tej podstawie sąd orzekł, że to, iż taka działalność jest wykonywana w ramach sektora publicznego nie oznacza, że stanowi ona, z tego tylko względu, wykonywania prerogatyw władzy publicznej.
+rada przyjęła stanowisko unii europejskiej na 5. posiedzenie konferencji stron konwencji sztokholmskiej w sprawie trwałych zanieczyszczeń organicznych.
+widmo radiowe: ujednolicone przepisy ue sprzyjają rozwojowi szybkiego, bezprzewodowego dostępu do internetu i unikaniu szkodliwych zakłóceń
+liczba rozwodów międzynarodowych w ue wynosi obecnie około 140 000 rocznie.
+wspólne oświadczenie ue-usa z 25 lipca: import amerykańskiego skroplonego gazu ziemnego (lng) do unii europejskiej rośnie
+poza strefą euro pozostaje zatem w chwili obecnej osiem państw członkowskich ue (tzw. „państwa członkowskie objęte derogacją”).
+takie będzie zatem stanowisko ue na forum komitetu ambasadorów akp–ue.
+w ciągu ostatnich 20 lat zmalały emisje czynników zanieczyszczenia powietrza, takich jak siarka.
+rada przypomina o znaczeniu bezpośrednich kontaktów międzyludzkich i z zadowoleniem przyjmuje rozpoczęcie dialogu na temat wiz w czerwcu 2010 roku, w ramach którego analizuje się warunki bezwizowego ruchu obywateli republiki mołdowy do ue traktowanego jako cel długoterminowy.
+wyrażono też zaniepokojenie o bezpieczeństwo energetyczne, w tym poruszono kwestię zagrożenia brakami w zaopatrzeniu w ue z powodu niewielkiej produkcji energii i nadmiernej zależności od kilku zagranicznych dostawców energii.
+ue będzie również w ścisłej współpracy z przedstawicielem kwartetu wzmacniać swoje programy na rzecz wsparcia budowy instytucji, dobrych rządów, udziału społeczeństwa obywatelskiego oraz wzrostu gospodarki palestyńskiej.
+l) wzywa komisję do składania co dwa lata sprawozdania z postępów eusbsr i osiągniętych wyników, w tym odniesień do wkładu stosownych polityk sektorowych.
+portale społecznościowe, z których regularnie korzysta w europie 41,7 mln osób, stanowią nowe zjawisko społeczne i ekonomiczne, które zmienia nasz sposób funkcjonowania w internecie.
+w związku z tym rada podkreśla potrzebę osiągnięcia bardziej konkretnych rezultatów w zakresie dochodzenia, ścigania i sądzenia przypadków korupcji na wysokim szczeblu i przestępczości zorganizowanej, by zmiana w bułgarii miała charakter trwały.
+niniejsza inicjatywa przyczyni się do stworzenia zdrowego środowiska i lepszych warunków życia dla 200 mln obywateli ue mieszkających w regionach przybrzeżnych.
+więcej szczegółów na temat strategii lizbońskiej na rzecz wzrostu gospodarczego i zatrudnienia, w tym niderlandzkiego krajowego programu reform i jego oceny przez komisję, można uzyskać na stronie:
+w odniesieniu do zasad odpowiedzialności, jaką wspólnota może ponosić nawet w braku bezprawnego zachowania jej organów, sąd uznał, że gdy bezprawność zachowania instytucji nie może zostać wykazana, przedsiębiorstwa, które ponoszą nieproporcjonalną część ciężarów będących wynikiem zachowania instytucji wspólnotowych mogą, spełniając określone przesłanki, uzyskać odszkodowanie za poniesioną szkodę.
+z budżetu unii pokrywane jest zaledwie 0,3 proc. wydatków na europejskie usługi społeczne.
+zastosowane procedury kontroli wewnętrznej w zakresie realizacji płatności i rachunków bankowych były zasadniczo skuteczne, chociaż, w przeciwieństwie do dg ecfin, dg budg nie dokumentowała zarządzania ryzykiem wynikającym z działań w zakresie środków pieniężnych, ani też nie wprowadziła procedur mających na celu ocenę wszystkich aspektów osiągniętych przez nią wyników;
+aby w tym tygodniu osiągnąć porozumienie na forum rady europejskiej, wszyscy przywódcy będą musieli być gotowi do kompromisu i do dokonywania wyborów.
+w celu uzupełnienia programów finansowanych z budżetu ue w dziedzinie obronności wysoki przedstawiciel proponuje utworzenie pozabudżetowego europejskiego instrumentu na rzecz pokoju dysponującego budżetem 10,5 mld euro na potrzeby ewentualnego wspólnego zaangażowania w państwach trzecich.
+duże prawdopodobieństwo utrzymania solidnego tempa wzrostu
+ogólnych wytycznych polityki gospodarczej ue na lata 2008–2010.
+skrobia ziemniaczana - korekta proponowana ze względu na niedociągnięcia w mechanizmie płatności w przedsiębiorstwie produkującym skrobię ziemniaczaną
+dyskusje dotyczyły głównie trzech podtematów:
+natomiast wartość unijnego importu produktów rolnych z krajów rozwijających się jest 20% większa niż wartość analogicznego importu w przypadku usa, kanady, japonii, australii i nowej zelandii razem wziętych.
+jest to konieczne dla zapewnienia trwałości funkcjonowania gospodarki palestyńskiej oraz poprawy warunków życia ludności palestyńskiej, zarówno w gazie, jak i na zachodnim brzegu.
+podczas szczytu było widać, że przywódcy są chętni dzielić się doświadczeniami i sprawdzonymi rozwiązaniami.
+w tym kontekście szczególnie pochwalono prace forum shade (wspólna świadomość i zbieżność) w bahrajnie.
+reforma wpr - jednolita wspólna organizacja rynku
+pieniądze pozwolą zapewnić interoperacyjność i pokryją koszty utrzymania infrastruktury na szczeblu europejskim, łączącej infrastrukturę poszczególnych państw członkowskich.
+regionalny program operacyjny województwa kujawsko-pomorskiego”, program objęty celem konwergencja
+komisja zaleca ściślejszą współpracę między platformami internetowymi w celu wymiany doświadczeń i rozwiązań technologicznych, w szczególności aby zapewnić wsparcie mniejszym platformom w realizacji zalecenia w odniesieniu do nielegalnych treści, a przede wszystkim treści terrorystycznych.
+w celu zwiększenia ochrony małoletnich pozbawionych opieki wjeżdżających do ue i w oparciu o poszanowanie praw dziecka komisja przyjęła w 2010 r. plan działania, który przyczynił się do zwrócenia baczniejszej uwagi na problem małoletnich pozbawionych opieki, przybywających do europy: każda decyzja mająca wpływ na przyszłość małoletnich musi być podjęta z uwzględnieniem najlepszego interesu dziecka, niezależnie od jego statusu migracyjnego.
+szczególną uwagę należy także zwracać na grupy najbardziej zagrożone i na nowe niebezpieczeństwa wykluczenia społecznego.
+konsumenci będą mieli dostęp do ofert większej liczby przedsiębiorców w całej ue i dzięki temu będą korzystać z szerszego wyboru produktów po bardziej konkurencyjnych cenach.
+jednak wyzwania, jakie przed nami stoją, są wciąż ogromne.
+wartość kredytów udzielonych poza unią przekroczyła 7 mld eur, przy czym połowa tej sumy trafiła do krajów kandydujących.
+prawodawstwo ue w zakresie homologacji typu pojazdu nakłada na państwa członkowskie obowiązek wprowadzenia systemu skutecznych, proporcjonalnych i odstraszających sankcji mających na celu zniechęcanie producentów samochodów do łamania prawa.
+po pierwsze, musimy przywrócić i utrzymać stabilność finansową w strefie euro.
+annette wasserman (niemcy)
+komisja podjęła niedawno nową inicjatywę pod nazwą „regiony na rzecz zmian gospodarczych”, której celem jest intensywne upowszechnianie najlepszych wzorów modernizacji i innowacji na terytorium unii.
+w konkluzjach podkreśla się, że wzmocnienie współpracy w dziedzinie polepszania poziomu wiedzy na temat sportu w ue można najlepiej osiągnąć poprzez międzysektorową współpracę między naukowcami, branżą sportową i ruchem sportowym oraz krajowymi i europejskimi organami publicznymi, w tym urzędami statystycznymi.
+decyzja ta dotyczy stanowiska ue w sprawie regulaminu rozstrzygania sporów oraz kodeksu postępowania arbitrów i mediatorów, przewidzianych w umowie o partnerstwie gospodarczym ( 15026/09 ).
+pięć wspomnianych przedsiębiorstw złożyło ostateczne propozycje działań, które zostały następnie poddane ocenie krajowych organów.
+zespół zadaniowy ds. mediów komisji europejskiej:
+więcej informacji
+komisja dokłada obecnie wszelkich starań, aby zapewnić szersze wykorzystanie łączności satelitarnej na tego rodzaju obszarach.
+w niektórych państwach ten współczynnik zbliża się do 50%.
+te praktyki, wraz z agresywnymi praktykami handlowymi, stanowią najliczniejsze nieuczciwe praktyki handlowe.
+obejmuje on także utworzenie europejskiego sojuszu na rzecz badań w dziedzinie energetyki, w celu zapewnienia większej współpracy pomiędzy organizacjami zajmującymi się badaniami w sektorze energetycznym oraz w celu lepszego planowania i dalekowzroczności na poziomie europejskim w zakresie infrastruktury i systemów energetycznych.
+wśród zmian wymienić należy stabilny i bardziej przewidywalny cykl procedury doboru oraz nacisk na umiejętności i kompetencje, a nie tylko wiedzę.
+dotyczy to także tzw. pieczęci (inaczej klauzuli) apostille , która jest wydawana przez władze publiczne jako dowód, że dany dokument urzędowy lub podpis urzędnika na danym dokumencie są autentyczne.
+program prac agencji frontex na rok 2011
+komisja oceni, czy możliwe jest ponowne określenie wymogów kapitałowych wobec banków (tzw. czynnik proekologiczny) w kontekście zrównoważonych inwestycji, gdy jest to uzasadnione z punktu widzenia ryzyka, przy jednoczesnym zapewnieniu stabilności finansowej;
+r. visser powiadomił radę o rozwoju sytuacji w związku z easo, w szczególności o działaniach podjętych w celu otwarcia agencji, jej pierwszym programie prac na rok 2011 oraz pierwszych planowanych operacjach.
+partnerstwo ue z asean opiera się na wspólnocie interesów w wielu obszarach.
+jestem bardzo zadowolona, że ministrowie przyjęli tak znaczące zmiany dotyczące funduszu restrukturyzacji.
+musimy chronić integralność naszych rynków i pieniądze naszych obywateli”.
+zostaną usunięte zbędne bariery w handlu elektronicznym, takie jak obciążanie należnościami celnymi podczas pobierania aplikacji, i wprowadzone jasne przepisy służące ochronie konsumentów w internecie.
+odnośnych szczegółów gospodarowania wspólnymi stadami ryb w cieśninach skagerrak i kattegat 2 ;
+program ten przygotowywany jest co roku przez zarząd europolu, zgodnie z decyzją rady ustanawiającą europejski urząd policji (dz.u. l 121 z 15.5.2009 ), z uwzględnieniem wymogów operacyjnych państw członkowskich oraz konsekwencji dla budżetu i stanu zatrudnienia urzędu.
+program hiszpańskiej prezydencji
+dlaczego opatrywanie napisami i dubbing są takie ważne?
+rada europejska podkreśla ponadto znaczenie swobody przemieszczania się i wzywa obie strony do podjęcia konkretnych kroków w kierunku wypełnienia zobowiązań wynikających z porozumienia o przemieszczaniu się osób i dostępie do strefy gazy (agreement on movement and access), by załagodzić pogarszającą się sytuację na zachodnim brzegu i w strefie gazy.
+w tym zakresie pragnę pogratulować władzom niderlandzkim za ich zaangażowanie w przesłanie komisji krajowych strategicznych ram odniesienia w nadchodzących dniach”.
+env, ladislav miko (cz)
+pakiet dotyczący działania na rzecz klimatu i energii odnawialnej
+dowodziła tym konieczności lepszego egzekwowania istniejących rozporządzeń i jednolitego ich stosowania we wszystkich państwach członkowskich.
+konferencję zamknie wiceprzewodnicząca ekes-u odpowiedzialna za politykę komunikacyjną w komitecie jillian van turnhout.
+helge sander minister nauki, technologii i rozwoju
+kultura jest zatem niezbędna do budowania długoterminowych relacji z krajami na całym świecie: ma do odegrania znaczącą rolę we wzmacnianiu światowej pozycji ue.
+niewiążące prawnie unijne wytyczne dotyczące jakości pomogłyby młodym ludziom, pracodawcom oraz instytucjom szkoleniowym w opracowaniu wymogów jakości w odniesieniu do staży.
+dzień otwarty w trybunale sprawiedliwości wspólnot europejskich
+w praktyce oznacza to, że właściciel patentu może być zmuszony do uczestniczenia w kilku postępowaniach równoległych, co powoduje spore koszty, jest skomplikowane i może skończyć się wydaniem różniących się od siebie decyzji sądowych.
+zważywszy na sytuację w tym kraju i niepewne perspektywy co do rozwoju sytuacji, wysoki komisarz organizacji narodów zjednoczonych do spraw uchodźców nie wyklucza, że liczba uchodźców i przesiedleńców może sięgnąć ponad – odpowiednio – 700 000 i 2,5 mln.
+przewodniczący marcin korolec
+ue zamierza odpowiedzieć na wyzwania w następujący sposób:
+po trzecie, regulacja ex ante w dziedzinie sieci światłowodowych powinna uwzględniać różnice w warunkach konkurencji między poszczególnymi rynkami i obszarami (wiejskimi i miejskimi) w obrębie danego rynku, czego efektem powinno być elastyczne środowisko regulacyjne, w którym działają siły konkurencyjne (operatorzy sieci kablowych i przyszły przenośny internet).
+wyrokiem z 26 lipca 2002 r. sąd ten nakazał de landtsheer między innymi zaprzestanie wszelkiego posługiwania się wzmianką „méthode traditionnelle” oraz nazwą pochodzenia „champagne”, oznaczeniem pchodzenia „reims-france”, a także odniesieniem do producentów win z reims i épernay oraz do metody produkcji szampana.
+nie jest przy tym uwzględniany czas przeznaczony na wiadomości, wydarzenia sportowe, gry, reklamy i telezakupy.
+aby osiągnąć zmniejszenie siły nabywczej o 2,2%, wynagrodzenia pracowników w brukseli i luksemburgu (obie grupy traktowane są jednakowo) należy zwiększyć o 0,1%.
+proponowany dziś pakiet składa się z:
+w kontekście malejącego spożycia tych produktów wśród dzieci należy skuteczniej zająć się kwestią złego odżywiania, tak by wzmocnić aspekt edukacyjny programów oraz przyczynić się do walki z otyłością.
+zadłużenie sektora prywatnego;
+po przedłożeniu sprawozdania przez trybunał obrachunkowy, państwa członkowskie zebrane w radzie podjęły decyzję o udzieleniu absolutorium sekretarzowi generalnemu i zastępcy sekretarza generalnego z wykonania budżetu za rok 2006 w odniesieniu do sisnet-u (infrastruktury łączności dla środowiska schengen).
+ue jest największym partnerem handlowym grupy sadc.
+dowodem na to jest fakt, że prawie połowa wszystkich przepracowanych godzin wykraczających poza standardowy czas pracy nigdy nie jest odbierana w żadnej formie.
+pacjenci powinni mieć pewność co do tego, że leczenie, z którego skorzystają w innym państwie członkowskim, podlega regularnie monitorowanym standardom jakości i bezpieczeństwa, opartym na dobrych praktykach medycznych.
+musimy więc pracować jeszcze intensywniej.
+ue z zadowoleniem przyjmuje tę inicjatywę, która jest zapowiedzią dalszych postępów w ramach procesu pokojowego z nairobi.
+posiedzeniu współprzewodniczyli wiceprzewodniczący komisji jyrki katainen i wiceprzewodniczący rady państwa chin, liu he, który jest odpowiedzialny za stosunki z ue i usa.
+sprawozdanie obejmuje okres od dnia 1 stycznia 2014 r. do połowy 2017 r. w odniesieniu do odstępstw od zasad konkurencji określonych w rozporządzeniu o wspólnej organizacji rynków produktów rolnych oraz od dnia 1 stycznia 2012 r. do połowy 2017 r. w odniesieniu do przeglądu postępowań wyjaśniających w zakresie ochrony konkurencji.
+w jednej trzeciej przypadków początkowo wyświetlona cena nie odpowiadała cenie końcowej.
+kilka miesięcy po tym, jak właściciele gospodarstw mleczarskich z całej ue demonstrowali w brukseli przeciwko wahaniom cen na rynkach rolnych, ekes opowiedział się zdecydowanie za utrzymaniem środków interwencji rynkowej, tak by zrównoważyć podaż i popyt.
+na tym etapie priorytetem komisji jest dopilnowanie, by w pełni wdrożono istniejące przepisy ue.
+w swojej rezolucji rada przedstawia wytyczne na przyszłość oraz w szczególności:
+instrument „łącząc europę” będzie finansował projekty, dzięki którym uzupełnione zostaną brakujące połączenia w europejskiej strukturze energetycznej, transportowej i cyfrowej.
+jaka będzie rola badań naukowych, innowacji i nowych technologii w ramach przyszłej wpr?
+są to ludzie o wielkim doświadczeniu i wybitnych cechach; jestem przekonany, że wniosą aktywny i pozytywny wkład w prace tej komisji.
+zrównoważony rozwój miast stanowi wreszcie szansę dla twórczości, innowacji oraz odnowy idei architektonicznych oraz dla ponownego odkrywania i reinterpretacji tradycyjnych prądów architektonicznych;
+w konkluzjach wyraża się zadowolenie w związku z komunikatem komisji.
+struktura opłat niegotowa
+2. zachęca komisję do utworzenia grupy wysokiego szczebla wspieranej przez sekretariat i służby komisji.
+cypr i rumunia natomiast wciąż nie przyjęły wszystkich map hałasu i planów działania dotyczących hałasu dla aglomeracji i głównych dróg.
+szybsza i bardziej celowa rekrutacja
+przedstawiciele komisji oraz hiszpanii i szwecji wystąpią wspólnie na konferencjach dla mediów w bangkoku w następujących terminach:
+programy dla regionu na lata 2007-2013
+komisja europejska podejmuje nowe działania, aby pomóc państwom członkowskim odzyskać narodowe dobra kultury nielegalnie wyprowadzone z ich terytoriów.
+udoskonalenie naszej unii politycznej i zwiększenie legitymizacji demokratycznej, które powinno znaleźć się u podstaw tego, co nazywam europą 3.0, należy przeprowadzić w oparciu o metodę wspólnotową rozumianą jako system kontroli utrzymujący równowagę pomiędzy instytucjami i państwami członkowskimi, stanowiący najlepszy punkt wyjścia dla ponadnarodowej demokracji.
+tego rodzaju rozróżnienie stwarza nieuzasadnione ograniczenie zasady swobodnego przepływu kapitału, określonej w art. 63 traktatu o funkcjonowaniu unii europejskiej oraz w art. 40 porozumienia o europejskim obszarze gospodarczym (eog).
+nieuczciwe praktyki handlowe stosowane w ue mogą mieć też pośredni lub bezpośredni wpływ na producentów i przedsiębiorstwa poza ue, w tym w krajach rozwijających się.
+wymieniono także opinie na temat przeglądu systemu reach – rejestracji, oceny, udzielania zezwoleń i stosowanych ograniczeń w zakresie chemikaliów.
+nie ma jednak gwarancji, że ten trend się utrzyma.
+„nielegalny handel bronią palną stanowi coraz większe zagrożenie dla bezpieczeństwa europejskich obywateli i lukratywny interes dla zorganizowanych grup przestępczych.
+celem komitetu jest ochrona europejskiego modelu społecznego, toteż zwraca się on do pozostałych instytucji ue o opracowanie wytycznych dotyczących usług użyteczności publicznej i globalizacji.
+stawki współfinansowania z budżetu ue będą wyższe dla inwestycji w „regionach konwergencji” niż dla inwestycji w „regionach konkurencyjności”.
+należy również poświęcić więcej uwagi lepszemu wykorzystywaniu siły roboczej przez zwiększenie zatrudnienia i średniej liczby przepracowanych godzin.
+[1] artykuł 23 rozporządzenia nr 1303/2013 z dnia 17 grudnia 2013 r.
+kształtowanie potężnego sojuszu na międzynarodowych forach, ponieważ ue i kraje akp reprezentują więcej niż połowę członków onz.
+rada z satysfakcją odnotowuje postępy islandii w zakresie ustabilizowania gospodarki i wyjścia z kryzysu finansowo-gospodarczego z przełomu lat 2008 i 2009, a także pomyślne zakończenie programu mfw w sierpniu 2011 roku.
+w jaki sposób zainteresowane strony będą zaangażowane w proces negocjacji?
+badanie pokazało nam, jakie są niedociągnięcia w tym sektorze, a teraz nadchodzi czas na podjęcie działań.
+świadczy to o tym, że słabe ogniwo europejskich badań i innowacji zlokalizowane jest przede wszystkim w sektorze prywatnym.
+tematem przewodnim konferencji inauguracyjnej jest „zarządzanie internetem na rzecz rozwoju” a debata skupiać się będzie na następujących zagadnieniach:
+zamiast tego nowy właściciel postanowił obrać ambitniejszą strategię inwestycyjną.
+w ue utrzymuje się także inna istotna tendencja, mianowicie skuteczne eliminowanie sprzężenia wzrostu gospodarczego ze wzrostem emisji gazów cieplarnianych.
+aby tego dokonać, państwa członkowskie muszą otworzyć się na współpracę.
+realizacja priorytetu zagwarantuje sprawne wdrażanie programu i obejmować będzie procesy zarządzania, kontroli, monitorowania, a także realizację działań informacyjnych i promocyjnych odnoszących się do programu, z uwzględnieniem poprawy przepływu informacji na temat pomocy wspólnoty w okresie 2007-2013.
+stanowiący jeden z elementów składowych budownictwa sektor wyrobów budowlanych zatrudnia ponad 5 mln osób i wytwarza ponad 3% unijnego pkb.
+jeżeli chodzi o reakcję na kryzys finansowy, rada wyraźnie podkreśliła konieczność bezzwłocznego utworzenia krajowych systemów wspierania sektora bankowego w odniesieniu do gwarancji, ale także, w szczególności, w odniesieniu do systemów dokapitalizowania.
+rozporządzenie (we) nr 1829/2003 w sprawie genetycznie zmodyfikowanej żywności i paszy (3693/07)
+bruksela, dnia 22 listopada 2011 r. – według opublikowanych w dniu dzisiejszym wyników badań dziedzictwo naturalne w europie ulega coraz większej degradacji.
+papiery typu sbbs nie wpłyną negatywnie na istniejące krajowe rynki obligacji.
+takiego rozwiązania nigdy nie było w planach i jest to wynikiem kurczenia się przez ostatnie dziesięciolecia innych zasobów (np. części dochodów z ceł).
+komunikat: szóste sprawozdanie w sprawie relokacji i przesiedlenia
+nowe zasady spowodują obniżenie obciążenia administracyjnego dla przedsiębiorstw (na przykład w odniesieniu do zawiadomień , których koszt ocenia się na 80 mln eur rocznie ) oraz zapewnią prawdziwie równe warunki dla wszystkich przedsiębiorstw przechowujących dane osobowe i działających w obrębie różnych państw członkowskich.
+na podstawie tej oceny podjęta zostanie decyzja o ewentualnym przedłużeniu lub rozszerzeniu zakresu stosowania rozporządzenia oraz objęciu nim wiadomości sms i mms oraz transmisji danych w roamingu, które to usługi obecnie nie wchodzą w zakres rozporządzenia.
+komisja europejska włączyła już niektóre aspekty nauki 2.0 do swojej polityki.
+pierwszy wiceprzewodniczący komisji europejskiej frans timmermans przewodził dziś spotkaniu wysokiego szczebla, w którym uczestniczyło ośmiu przedstawicieli organizacji religijnych z całej europy.
+komisja podjęła decyzję o skierowaniu do trybunału sprawiedliwości ue sprawy przeciwko hiszpanii w związku z niepełnym wdrożeniem dyrektywy w sprawie wymogów kapitałowych (dyrektywa 2013/36/ue).
+organy publiczne odpowiedzialne za szkolnictwo wyższe powinny zapewnić zrównoważone, odpowiednio sfinansowane ramy wspierania działań placówek szkolnictwa wyższego na rzecz podnoszenia jakości nauczania i uczenia się.
+jako pierwsi dokonaliśmy transpozycji regulacji bazylea iii w odniesieniu do kapitału własnego banków i przewidujemy w europie ich wdrożenie w niektórych aspektach za pomocą decyzji – również podjętych w dniach 26–27 października – dotyczących dokapitalizowania europejskich banków;
+pepp jest jednym z najważniejszych środków zapowiedzianych w zeszłym miesiącu w przeglądzie śródokresowym unii rynków kapitałowych – projektu komisji zmierzającego do stworzenia jednolitego rynku kapitałowego w ue.
+inne kraje po prostu przyjmują zbyt niewiele osób ubiegających się o azyl, na przykład w pierwszej połowie bieżącego roku ponad 75% wszystkich wniosków o udzielenie azylu zostało złożonych w tylko 6 państwach członkowskich (francja, niemcy, belgia, zjednoczone królestwo, szwecja i włochy), co oznacza, że wiele państw członkowskich mogłoby przyjąć na siebie większą odpowiedzialność.
+41 proc. respondentów stwierdziło, że główną zaletą pakietów jest wygoda związana z posiadaniem jednego dostawcy, który wystawia jeden rachunek.
+wzywa również komisję do przedstawienia zaleceń w sprawie wytycznych dotyczących współpracy i transferu technologii między państwowym sektorem badań a sektorem przemysłu oraz, jako działanie priorytetowe, do przedstawienia strategii dotyczących praw własności intelektualnej i ochrony patentowej.
+nowy ogólny formularz zgłoszeniowy będzie ponadto dostarczał komisji dodatkowych informacji umożliwiających przyspieszenie procedur podejmowania decyzji.
+w celu zapewnienia spójności między tymi dwoma aktami komisja przedstawi je parlamentowi europejskiemu i radzie równocześnie, aby współprawodawcy ue mogli wykonać swoje funkcje kontrolne.
+państwa członkowskie – zarówno te, z których pochodzą mobilni obywatele ue, jak i te, które ich przyjmują – otrzymają wytyczne dotyczące opracowywania programów włączenia społecznego przy wsparciu z efs.
+w jaki sposób program „kreatywna europa” różni się od obecnych programów media i kultura?
+stanowi to również interesujący model biznesowy dla europejskich przedsiębiorstw.
+„jasne jest, że musimy działać wspólnie na wszystkich szczeblach władzy.
+od września do listopada kandydaci, którzy przeszli testy wstępne, zostaną poddani ocenie zintegrowanej, a listy rezerwowe zwycięskich kandydatów zostaną sporządzone przed bożym narodzeniem.
+ue jest największym partnerem handlowym afrykańskiego kontynentu.
+w europejskiej agendzie bezpieczeństwa określono kilka obszarów, w których możliwa jest poprawa skuteczności zwalczania finansowania terroryzmu.
+w związku z tym, po otrzymaniu dowodów potwierdzających poprawę w zakresie przestrzegania norm bezpieczeństwa, komisja będzie uważnie monitorować i sprawdzać licznych rosyjskich przewoźników lotniczych, na których władze rosyjskie nałożyły ograniczenia przewozowe.
+rada i komisja przypominają, że wspólne stanowisko rady 2006/276/wpzib podlega stałemu przeglądowi i może być zmienione w następstwie zmian politycznych zachodzących na białorusi.
+komunikat prasowy – unia bezpieczeństwa: komisja przedstawia nowe środki pozbawiające terrorystów możliwości działania
+ma to na celu realizację planów zapowiedzianych w strategii komisji na rzecz stworzenia europejskiej gospodarki danych ze stycznia 2017 roku oraz unijnej strategii mobilności pojazdów współpracujących, połączonych i zautomatyzowanych z listopada 2016 roku.
+frans timmermans, pierwszy wiceprzewodniczący komisji, federica mogherini, wysoki przedstawiciel unii do spraw zagranicznych i polityki bezpieczeństwa oraz wiceprzewodnicząca komisji, johannes hahn, komisarz do spraw europejskiej polityki sąsiedztwa i negocjacji w sprawie rozszerzenia, neven mimica, komisarz do spraw współpracy międzynarodowej i rozwoju, dimitris avramopoulos, komisarz do spraw migracji, spraw wewnętrznych i obywatelstwa, christos stylianides, komisarz do spraw pomocy humanitarnej i zarządzania kryzysowego, věra jourová, komisarz do spraw sprawiedliwości, konsumentów i równouprawnienia płci, tibor navracsics, komisarz do spraw edukacji, kultury, młodzieży i sportu oraz julian king, komisarz ds. unii bezpieczeństwa, wydali następujące oświadczenie:
+rada zmieniła środki ograniczające z myślą o sytuacji w afganistanie, tak by uwzględnić decyzje podjęte przez organizację narodów zjednoczonych.
+jestem przekonany, że jej sprostamy.
+po otrzymaniu w 2005 r. pozytywnej opi nii efsa, komisja przedłożyła propozycje zezwoleń komitetom, a następnie – wobec nieprzedstawienia przez nie opinii – radzie, która nie wydała decyzji.
+jednocześnie coraz bardziej zacierają się granice między zagrożeniami wewnętrznymi i zewnętrznymi: tsunami na oceanie indyjskim dotknęło europejskich turystów, jak również ludność lokalną, powodzie i pożary dotknęły zarówno państwa członkowskie, jak też państwa sąsiednie, zaś epidemie mogą się rozprzestrzeniać między kontynentami.
+wymieniliśmy również opinie na temat ogólnego zarządzania strefą euro.
+nasza kampania służy uwydatnieniu tych przykładów i ma się przyczynić do powszechnego stosowania tych rozwiązań”.
+w ramach polityki spójności irlandia otrzyma w latach 2007-2013 ogółem 901 mln euro.
+zapraszam wszystkie zainteresowane strony do wzięcia udziału w procesie konsultacji, którego celem jest szukanie pozytywnych rozwiązań dla kwestii odpadów z tworzyw sztucznych.”
+portal ten jest obecnie w „wersji beta” (faza opracowywania i testowania), a jego uruchomienie planowane jest na wiosnę 2012 roku.
+o jego wynikach komisja na bieżąco informuje parlament europejski i radę.
+głosowanie w parlamencie planowane jest na styczeń lub luty 2009 roku.
+w tym kontekście rada europejska z zadowoleniem przyjmuje wspólne sprawozdanie na temat zatrudnienia i wspólne sprawozdanie w sprawie ochrony socjalnej i integracji społecznej.
+to opcjonalne prawo mogłoby stanowić alternatywę dla obowiązującego prawa umów i byłoby dostępne we wszystkich językach.
+„wyjazdy – przyjazdy”
+traktaty ue przestaną mieć zastosowanie do zjednoczonego królestwa od dnia wejścia w życie umowy o wystąpieniu lub – jeśli porozumienie nie zostanie osiągnięte – w terminie 2 lat od daty powiadomienia o zamiarze wyjścia z ue.
+właśnie w transnarodowych projektach jest najwięcej opóźnień.
+zasoby własne oparte na dochodzie narodowym brutto (dnb) : (73 proc. budżetu, 93,7 mld euro): w odniesieniu do dnb każdego państwa członkowskiego stosowana jest standardowa stawka procentowa.
+a. partnerstwa na rzecz mobilności
+jednocześnie rada wyraża głębokie ubolewanie z powodu decyzji norwegii o podwyższeniu stawek ceł na niektóre produkty rolne poprzez przejście z obecnie stosowanych ceł specyficznych do ceł ad valorem.
+program prac francji na czas przewodnictwa w ue
+w konsekwencji trybunał sprawiedliwości oddalił odwołanie.
+pytania i odpowiedzi na temat konferencji onz w sprawie zmiany klimatu, która odbędzie się w limie
+pomoc państwa: komisja zarządza zwrot pomocy na restrukturyzację od polskiego przedsiębiorstwa technologie buczek, producenta rur bez szwu
+inne państwa członkowskie ue, które nie są jeszcze gotowe, ale które zechcą w późniejszym czasie dołączyć do tej pionierskiej grupy, będą mogły to uczynić.
+badanie podkreśla, że świadomość istnienia uregulowań prawnych w dziedzinie zapobiegania dyskryminacji (na tle płci, pochodzenia etnicznego lub rasowego, wieku, orientacji seksualnej, niepełnosprawności, religii lub przekonań) jest w ue stosunkowo niska - zaledwie jedna trzecia obywateli przyznaje, że zna swoje prawa w sytuacji, gdyby stali się ofiarami dyskryminacji lub molestowania.
+państwa członkowskie mogą uczestniczyć bezpośrednio lub poprzez krajowe banki prorozwojowe zarówno na poziomie zdolności ponoszenia ryzyka (uzupełniając wkłady z budżetu ue i ebi), poprzez platformę inwestycyjną lub bezpośrednie współfinansowanie poszczególnych projektów i działań.
+trybunał przeprowadził kontrolę programu cards w celu ustalenia, czy zarządzanie komisji jest skuteczne w odniesieniu do realizacji celów programu.
+transport, telekomunikacja i energia
+jednak istnieje potrzeba ustanowienia praktycznych porozumień dotyczących kontroli połowów dokonywanych przez obie strony na wodach jednej ze stron.
+§ rola europejskiej agencji bezpieczeństwa lotniczego w ochronie europejskiego nieba (ip/05/1422).
+dowody przedstawione przez polskę podczas szczegółowego postępowania rozwiały wszelkie wątpliwości komisji odnośnie do tego, czy europejski obszar ekonomiczny (eog) może zostać uznany za odpowiedni rynek geograficzny do przeprowadzenia oceny tych progów.
+przewiduje się, że osoby z tych list zostaną zatrudnione do końca 2006 r.
+trybunał zaleca, aby komisja oceniała całkowite skutki finansowe wydania błędnej wit oraz, w razie konieczności, pociągała państwo członkowskie do odpowiedzialności finansowej za wszelkie powstałe straty tradycyjnych środków własnych.
+agencje wykonawcze
+europejska komisarz do spraw sprawiedliwości, konsumentów i równouprawnienia płci věra jourová powiedziała: „
+państwa członkowskie będą musiały wspierać narzędzia zarządzania ryzykiem w ramach rozwoju obszarów wiejskich, aby wspomóc rolników w zarządzaniu produkcją i ryzykiem związanym z dochodem, które jest poza ich kontrolą.
+dr michel goldman, dyrektor wykonawczy ili, powiedział: „
+dzięki niej zainteresowane strony na poziomie unijnym, krajowym, regionalnym i lokalnym, zaangażowane w proces transformacji, będą mogły rozwijać różne formy partnerstwa i uczyć się od siebie nawzajem.
+wpływ funduszy zostanie wzmocniony także poprzez uproszczenie i harmonizację przepisów dotyczących poszczególnych funduszy, w tym w obszarze rozwoju obszarów wiejskich oraz polityki morskiej i rybołówstwa.
+jak w czasie kryzysu funkcjonowały programy pracy w mniejszym wymiarze godzin i jak radziły sobie one z utrzymującym się niskim popytem?
+cena wewnątrzunijnych połączeń w sieciach komórkowych nie mogłaby przekraczać 0,19 euro za minutę (plus vat).
+d. badania kosmiczne
+fundusze te będą gromadzone stopniowo w ramach unii bankowej.
+podczas gdy trzy kryteria wyboru stanowią pragmatyczny punkt wyjścia przy wyborze pierwszej próby miast, platforma internetowa umożliwia użytkownikom wprowadzanie nowych danych lub zmianę wagi wymiarów i wskaźników częściowych, aby lepiej odzwierciedlały aspekty mające lokalnie największe znaczenie.
+w odniesieniu do zachowania trwałych użytków zielonych – zarządzanie nimi na poziomie regionalnym lub krajowym zamiast na poziomie gospodarstwa rolnego, jak proponowała komisja;
+rada przypomina, że partnerskie podejście ma podstawowe znaczenie dla skutecznego dostarczania pomocy humanitarnej i że działania zarysowane w planie działania powinny być prowadzone, w odpowiednich przypadkach, w ścisłej współpracy z partnerskimi organizacjami humanitarnymi i z innymi zainteresowanymi stronami”.
+przyjęty dziś program prac jest ambitnym, lecz realistycznym programem działań ukierunkowanym na wyniki.
+komisja będzie współpracować z amerykańskimi władzami w sprawie działań podjętych w następstwie jej zaleceń w nadchodzących miesiącach.
+nieznacznie mniejsze regionalne zróżnicowanie występuje w grecji (najlepszy wynik attyka, 1,2 %; najgorszy: ditiki makedonia, 100 %), w finlandii (najlepszy wynik: etelä-suomi, 1,2 %; najgorszy: wyspy alandzkie, 88,5 %) i w bułgarii (najlepszy wynik: jugozapaden, 14,4 %; najgorszy: sewerozapaden, 97,4 %).
+unia europejska jest reprezentowana na szczytach g8 i g20 przez przewodniczącego rady europejskiej, hermana van rompuya, oraz przewodniczącego komisji europejskiej, josé manuela barroso, zaś w 2011 r. przewodnictwo w grupie g8 i g20 sprawuje francja.
+sesję rady poprzedziła w poniedziałek kolacja z parterami społecznymi.
+wprowadzenie nagród motywacyjnych może stymulować kreatywność oraz umożliwiać znalezienie innowacyjnych rozwiązań istniejących problemów dzięki zaangażowaniu licznej grupy ubiegających się o nie uczestników konkursu.
+obecnie powinien to być naturalny wybór każdego europejczyka.
+bardziej sprawnego i zintegrowanego systemu transgranicznego handlu energią elektryczną i transgranicznej eksploatacji sieci, w tym również wypracowania norm technicznych;
+istnieją jednak silne argumenty ekonomiczne i przemysłowe przemawiające za ściślejszą współpracą, np. dotyczące badań i przetargów w dziedzinie obronności.
+dyskusja o zasadach i priorytetach, bez konkretnych liczb, miała – w moim założeniu – zwrócić uwagę nie na pozytywy i negatywy dla poszczególnych krajów, ale na strategiczne priorytety unii jako całości.
+jednolity rynek telekomunikacyjny: tworzenie połączonego kontynentu
+pomoc państwa: komisja zatwierdza polski program dokapitalizowania banków
+w chwili obecnej tylko prawo krajowe może zmusić bank do wypłaty środków wierzycielowi z rachunku swego klienta.
+panel stwierdził, że dodatkowe ogromne dotacje w wysokości 5,7 mld usd udzielone przez stan waszyngton na rzecz boeinga są nielegalne.
+równowaga środowiska naturalnego i społeczności lokalnych: zachęcanie do wprowadzania innowacji w celu wspierania i umacniania trwałego i zrównoważonego rozwoju, produkcji i konsumpcji oraz propagowania spójności społecznej i ekonomicznej w gospodarce lokalnej, w tym na obszarach miejskich i wiejskich.
+misję eupol dr konga rozpoczęto 1 lipca 2007 r.
+współpraca z europejskimi organami pozwoliłaby na kontrolę krzyżową informacji krajowych z informacjami z rejestrów karnych, baz danych i innych informacji przechowywanych przez europol i olaf w celu identyfikacji rzeczywistych sprawców nadużyć finansowych i ich sieci.
+obejmuje różne działania, od opartych na współpracy lokalnych społeczności projektów łączących mieszkańców irlandii północnej i przygranicznego regionu irlandii, poprzez wspólne działania łączące społeczności np. w austrii i słowenii, do szerzej zakrojonych strategii związanych z transportem lub ze środowiskiem, łączących państwa członkowskie i regiony ue, np. na bałkanach.
+traktat lizboński, który wchodzi w życie 1 grudnia, sprawi, że ue stanie się bardziej demokratyczna, przejrzysta i skuteczna, zaś miasta i regiony będą miały silniejszą pozycję w jej strukturze politycznej.
+wyczerpującą listę obowiązujących kodeksów ładu korporacyjnego można znaleźć w internecie: http://www.ecgi.org/codes/all_codes.php
+w szczególności rada:
+jak ue odnosi się do konieczności zwiększenia globalnego finansowania działań związanych z klimatem do 2020 r.?
+działalność architektoniczna wnosi znaczny wkład do gospodarki ue.
+ta precyzja umożliwi poprawę świadczonych obecnie usług, i przede wszystkim pozwoli na opracowanie nowych zastosowań.
+chociaż osiągnięto już znaczące postępy w ue, jeśli chodzi o gospodarowanie odpadami i wdrożenie prawodawstwa w tym zakresie, potrzebne są dalsze usprawnienia w przypadku większości, a nawet wszystkich państw członkowskich.
+w następstwie tego, w razie wprowadzenia przez internautę do wyszukiwarki google słowa „interflora” lub jednego z jego wspomnianych wariantów, wyświetlała się reklama firmy m & s.
+komisja europejska zwróciła się do hiszpanii o zmianę dyskryminacyjnych przepisów podatkowych w odniesieniu do dywidend zagranicznych.
+w obliczu zmiany klimatu i nadmiernego wykorzystywania zasobów naturalnych miasta są na pierwszej linii w dążeniach do zrównoważonego rozwoju.
+rada będzie regularnie – po raz pierwszy jesienią 2011 roku – analizowała postępy i osiągnięcia, w tym na podstawie kolejnego sprawozdania wysokiego przedstawiciela w sprawie wpbio oraz informacji przedstawianych przez państwa członkowskie.
+jest to wspaniały przykład na to, co można osiągnąć dzięki współpracy współczesnych europejskich architektów.”
+rada uzgadnia strategię ue dotyczącą pomocy na rzecz wymiany handlowej
+przewodniczący parlamentu europejskiego
+czym jest „gwarancja dla młodzieży”?
+jakkolwiek należy kontynuować inwestycje w szkolenia i pełną aktywizację istniejącej siły roboczej, uchodźcy – jeżeli będą dobrze zintegrowani – mogą również wnieść swój wkład w rynki pracy ue i pomóc w rozwiązaniu problemów związanych z wyzwaniami demograficznymi.
+ubezpieczenia na życie, które mogłyby służyć za prywatne ubezpieczenia emerytalne.
+dzisiaj, dnia 1 grudnia 2009 r., wchodzi w życie traktat lizboński.
+zgodnie z propozycją komisji:
+system ten generuje zatem poważne obciążenia dla przewoźników i stanowi przeszkodę w prawidłowym funkcjonowaniu wewnętrznego rynku transportu.
+gwarancje państwa są również cenione przez państwa członkowskie, ponieważ umożliwiają korzystniejsze wykorzystanie środków budżetowych.
+innym obszarem będącym przedmiotem wspólnego zainteresowania jest bezpieczeństwo morskie.
+organy przygotowawcze rady dokonały postępów, zwłaszcza jeżeli chodzi o zakres zastosowania, obowiązki podmiotów i państw członkowskich, zasady zatwierdzania i rejestracji, sektor karmy dla zwierząt domowych, związek z przepisami o ochronie środowiska i uproszczenie.
+silne poparcie dla działań na szczeblu ue
+trwałe rozwiązanie dla grecji.
+jednocześnie badani w państwach położonych bliżej ue (rosja, norwegia i szwajcaria) mają zwykle bardziej mieszane uczucia (między 43 a 46 proc. z nich pozytywnie ocenia ue).
+nawet jeżeli jeden środek realizuje kilka celów lub ma kilka części składowych, a żaden z celów lub żadna z tych części nie ma charakteru pomocniczego w stosunku do pozostałych, to nie może zostać przyjęty na podstawie traktatu ue, jeżeli wchodzi również w zakres kompetencji przyznanej traktatem we.
+przewiduje również środki będące reakcją na oświadczenie rady europejskiej z czerwca 2010 roku, w którym wezwano ue do wprowadzenia środków towarzyszących, które uzupełniają i poszerzają środki onz.
+komisja złożyła ministrom sprawozdanie na temat wdrażania europejskiego programu „owoce w szkole” (18070/12 + add 1 ).
+komunikat w sprawie projektów planów budżetowych strefy euro
+komisja przyjęła dziś nowy, szczególnie ambitny program bezpieczeństwa na drogach, który ma na celu zmniejszenie o połowę liczby śmiertelnych wypadków drogowych w ciągu nadchodzącej dekady.
+santander (hiszpania), miasto nominowane ze względu na spójne programy w zakresie przyjaznego podejścia do kwestii dostępności przestrzeni publicznej, wzorowane na projektowaniu uniwersalnym, jak również za jakość i trwałość osiągniętych wyników.
+wspólne oświadczenie rady europy / unii europejskiej z okazji europejskiego dnia przeciwko karze śmierci i światowego dnia przeciwko karze śmierci, które przypadają 10 października 2010 r.
+ponad 80 mln obywateli ue jest nadal zagrożonych ubóstwem, z czego jedna czwarta to dzieci.
+strona internetowa: europejska agencja straży granicznej i przybrzeżnej
+zgodnie w wynikami konsultacji publicznych panuje ogólne wrażenie, że szerzenie dezinformacji w mediach społecznościowych jest łatwe, ponieważ fałszywe informacje odwołują się do uczuć odbiorców (88 proc.), że dezinformacje są rozpowszechniane, aby sterować debatą publiczną (84 proc.), i że mają one na celu generowanie przychodów (65 proc.).
+innowacyjne uczenie się i nauczanie – tak by nasze systemy kształcenia i szkoleń poszerzyły i poprawiły zakres działalności w celu zaoferowania większej liczbie osób umiejętności koniecznych do odniesienia sukcesu.
+istotne znaczenie ma również przezwyciężenie charakteryzującej obecną sytuację pokusy nadużycia, w której banki de facto liczą na to, że jeśli znajdą się poważnych tarapatach, to zostaną uratowane przez rządy .
+inwestycje ue w program współpracy bułgarii i turcji wyniosą 10 mln euro
+jestem przekonana, że leeuwarden przygotuje atrakcyjny program o silnym wymiarze europejskim, i że program ten przyciągnie gości z całego świata.
+państwo członkowskie nie może wymagać , w celu wydania zezwolenia na pobyt, by zstępny udowodnił, że bezskutecznie podejmował starania o znalezienie pracy lub o uzyskanie pomocy na pokrycie kosztów utrzymania w państwie pochodzenia
+rumunia:
+wyznaczenie ambitnych celów współpracy z chinami;
+planowane działania dotyczą wszystkich sektorów gospodarki – przemysłu, środowiska naturalnego czy też sektora badań.
+opierają się one na podstawowych wartościach ue, takich jak solidarność, poszanowanie ludzkiej godności i praw człowieka oraz promowanie sprawiedliwego i równego społeczeństwa opartego na pluralizmie, niedyskryminacji, tolerancji, sprawiedliwości, solidarności oraz na równości.
+także w zeszłym roku, pomimo niezwykle trudnej sytuacji, udało się nam wiele osiągnąć w tym zakresie.
+oświadczenie wysokiego przedstawiciela wydane w imieniu unii europejskiej w związku z przyłączeniem się niektórych państw trzecich do decyzji rady 2011/301/wpzib w sprawie wykonania decyzji 2010/639/wpzib dotyczącej środków ograniczających skierowanych przeciwko niektórym urzędnikom z białorusi
+sprawozdawca: jan olsson (grupa iii, inne podmioty, szwecja)
+dlatego też komisja dąży do osiągnięcia lepszej równowagi w zakresie przepisów mających obecnie zastosowanie do tradycyjnych nadawców, dostawców usług wideo na żądanie i platform internetowych, zwłaszcza jeśli chodzi o ochronę dzieci.
+rada przyjęła decyzję o wyrażeniu zgody na podpisanie i tymczasowe stosowanie umowy o współpracy naukowo-technicznej z wyspami owczymi, przewidującej stowarzyszenie tego państwa w ramach siódmego programu ramowego unii w zakresie badań na lata 2007–2013 ( 5475/10 ).
+rada przyjęła decyzję w sprawie mianowania pedra raúla narro sáncheza członkiem europejskiego komitetu ekonomiczno-społecznego na miejsce pedra baraty triguery na okres pozostający do końca jego kadencji, czyli do się 20 września 2010 r.
+w związku z tym zalecamy, co następuje:
+nastąpiła dalsza poprawa sytuacji kobiet i ochrony ich praw w jordanii, tunezji i egipcie.
+w badaniu przedstawiono szereg różnorodnych profili kobiet pracujących w dziedzinie technologii cyfrowych: od projektantki gier wideo i specjalistki w dziedzinie komunikacji cyfrowej do autorki polityki w dziedzinie ict.
+wdrażanie australijskiego systemu „evisitors” będzie starannie monitorowane.
+z uwagi na to, że ani udziały batonów bounty w rynku, ani poziom ich rozpoznawalności nie są na terenie wspólnoty jednolite, rezultaty badań opinii publicznej przeprowadzonych jedynie w sześciu z ówczesnych piętnastu państw członkowskich, tj. w zjednoczonym królestwie, w belgii, we francji, w niemczech, we włoszech i w niderlandach, nie mogą służyć za podstawę do wyciągania wniosków dotyczących pozostałej części rynku wspólnotowego.
+sprawozdanie przygotowane dla komisji w 2009 r. wykazało, że wprowadzenie obowiązkowych wymogów dotyczących urządzeń wykorzystujących wodę w ramach rozszerzonej dyrektywy w sprawie ekoprojektu mogłoby przynieść znaczne oszczędności wody.
+ceremonia podpisania odbędzie się 30 marca w nowym jorku.
+zachęty powinny być wprowadzane na podstawie obiektywnych i powszechnie dostępnych danych na temat osiągów.
+dzisiejsze uruchomienie portalu to pierwszy krok w tworzeniu wielojęzycznego portalu, który może ułatwić życie obywatelom, przedsiębiorcom i prawnikom w europie.
+dziesięć z tych infrastruktur jest obecnie wdrażanych, a wdrażanie 16 kolejnych rozpocznie się w tym roku.
+nie oznacza to, że komisja nie podejmuje działań w kwestiach dobrostanu zwierząt wchodzących w zakres kompetencji unii.
+ósme półroczne sprawozdanie z funkcjonowania strefy schengen (15 grudnia 2015 r.)
+rada dokonała wymiany poglądów, podczas której potwierdziła, że zamierza dążyć do wynegocjowania umowy z parlamentem europejskim, która umożliwi jak najszybsze wejście w życie rozporządzenia dotyczącego dwustronnych umów inwestycyjnych.
+wyposażenie wszystkich samochodów w ue w system powiadamiania o wypadkach mogłoby przynieść oszczędności rzędu 26 mld euro rocznie, przy czym koszty samego systemu szacuje się na mniej niż 100 euro na pojazd.
+rada postanowiła nie sprzeciwiać się przyjęciu przez komisję decyzji aktualizującej wspólne specyfikacje dotyczące krajowych rejestrów pojazdów kolejowych i przewidującej połączenie tych rejestrów z centralnym wirtualnym rejestrem pojazdów kolejowych prowadzonym przez europejską agencję kolejową (dok.
+przewodnicząca cecilia malmström
+posiedzenie rady europejskiej (art. 50) – konkluzje z dnia 29 czerwca 2018 r.
+rada odnotowała, że w misjach zawsze musi pracować odpowiednia liczba wykwalifikowanego personelu, aby umożliwić pomyślne wykonanie mandatów misji.
+tę kwestię i inne zagadnienia wyjaśniono we wspólnym instrumencie interpretacyjnym, który będzie miał moc prawną.
+badania i innowacje
+głównym celem tego pakietu legislacyjnego powinno być zapewnienie pacjentowi odpowiedniego leku w odpowiednim czasie i dawce, a przez to jak najlepsze wykorzystanie zasobów.
+na poziomie bardziej ogólnym istniejące programy partnerstwa i pomocy zostaną poddane szybkiej weryfikacji – w ścisłej współpracy z naszymi partnerami w regionie – by lepiej ukierunkować je na obecne potrzeby.
+w tym względzie podział kompetencji między państwo wydania i państwo wykonania wyroku będzie następujący:
+celem wykorzystania dopuszczanych przez wto możliwości (subwencjonowanego) eksportu – corocznie można wyeksportować 1 374 000 ton przy wykorzystaniu instrumentu refundacji wywozowych – planowane jest zaoferowanie zapasów do odsprzedaży na eksport.
+łączne koszty systemu dla drobnych producentów rolnych nie mogą przekroczyć 10 proc. środków przeznaczonych dla poszczególnych państw, chyba że państwo członkowskie zdecyduje się zadbać o to, by drobni producenci otrzymali należne środki niezależnie od systemu.
+państwa członkowskie powinny zapewnić w pełni operacyjne zdolności w zakresie powrotów w ramach europejskiej agencji straży granicznej i przybrzeżnej do maja 2018 r. do czerwca 2018 r. powinny zwiększyć o 50 proc. liczbę migrantów powracających w ramach operacji przeprowadzanych we współpracy z tą agencją (w porównaniu z 2017 r.).
+agenda cyfrowa ma na celu zapewnienie wszystkim europejczykom dostępu do internetu o prędkości 30 mb/s do 2020 r. oraz przynajmniej 50 proc. europejskich gospodarstw domowych połączenia internetowego o prędkości powyżej 100 mb/s w tym samym terminie.
+jeżeli państwa te nie podejmą działań w ciągu dwóch miesięcy od dnia otrzymania uzasadnionej opinii, sprawa może zostać skierowana do trybunału sprawiedliwości ue.
+środowisko: komisja wzywa hiszpanię do uprzątnięcia składowisk
+ponadto kontynuowane są prace mające doprowadzić do zawarcia umów z krajami bałkanów zachodnich, które umożliwią europejskiej agencji straży granicznej i przybrzeżnej udzielenie im pomocy w zarządzaniu granicami, jeśli zaistnieje taka potrzeba.
+w tym kontekście rada odnotowuje trwający proces przeglądu procedur zarządzania kryzysowego, którego celem jest przyspieszenie planowania, podejmowania decyzji, realizacji i oceny w dziedzinie wpbio oraz poprawa skuteczności tych działań, przy zaangażowaniu państw członkowskich w cały proces.
+nowego wniosku w tej sprawie można spodziewać się w 2016 r. w ramach pakietu dotyczącego przejrzystości podatkowej przedstawionego przez komisję w marcu pierwsze sukcesy odnotowano również w październiku 2015 r., kiedy to państwa członkowskie osiągnęły porozumienie polityczne w sprawie automatycznej wymiany informacji o interpretacjach indywidualnych prawa podatkowego, po zaledwie siedmiu miesiącach negocjacji.
+inflacja rośnie z niskich poziomów, dlatego nie możemy oczekiwać, że obecny impuls monetarny będzie trwał wiecznie.
+polski minister administracji i cyfryzacji
+innym ważnym źródłem wykorzystywanym do produkcji energii elektrycznej jest biogaz, którego wykorzystanie nie oznacza jedynie produkcji energii lecz dotyczy również przetwarzania odpadów oraz bierze pod uwagę ochronę środowiska.
+rada przyjęła konkluzje na temat ochrony lotnictwa przed zagrożeniami terrorystycznymi (17008/12 ).
+głos zabiorą również poseł do parlamentu europejskiego vasco graça moura oraz iracki pisarz younis tawfik.
+prospekty emisyjne: komisja ogranicza biurokrację i wzmacnia ochronę inwestorów
+jeżeli program restrukturyzacji nie zakończy się pomyślnie, konsekwencje będą oczywiste – nie powstaną inne fundusze ułatwiające restrukturyzację przemysłu cukrowniczego i będziemy zmuszeni do zastosowania liniowego ograniczania kwot do roku 2010.”
+ue popiera prace prowadzone przez komisję dochodzeniową oraz przedłużenie jej mandatu.
+zagwarantowanie przej rzystości emerytur, tak aby ludzie mogli podejmować świadome decyzje o swoich przyszłych dochodach na emeryturze.
+komisja opublikowała komunikat na ten temat już w 2010 r.( ip/10/1353 ).
+wybrane programy obejmują wiele różnych kategorii produktów, przede wszystkim te kategorie, które ucierpiały w wyniku niedawnych trudności na rynku, takie jak wyroby mleczarskie, ale również mięso, świeże i przetworzone owoce i warzywa, produkty wysokiej jakości (tj. chronione przez trzy unijne systemy oznaczeń geograficznych) oraz oliwę z oliwek i produkty ekologiczne.
+władze grecji podają, że rozpoczęto już realizację nowych inicjatyw (finansowanie ue wynosi około 47 mln euro), które obejmują czasowe zatrudnianie młodych bezrobotnych (do 35 lat) w programach społecznych w dziedzinie kultury, jak również wspieranie struktur społecznych, których celem jest walka z ubóstwem i wykluczeniem społecznym, w celu umożliwienia im rekrutacji młodych bezrobotnych.
+ue z wyraźnym zaniepokojeniem odnotowała nasilającą się ofensywę armii birmańskiej i jej sił sojuszniczych wymierzoną w narodową wyzwoleńczą armię karenu (knla), co spowodowało ucieczkę dużej liczby cywilów z obszarów objętych konfliktem w stanie karen/kayin do tajlandii.
+proces ten nie może ograniczać się tylko do decydentów politycznych, prawodawców i grup wysokiego szczebla.
+określenie górnego limitu
+komisja europejska wzywa 14 państw członkowskich ue do ograniczenia opłacalności przestępczości międzynarodowej
+„naszym założeniem było przedstawienie nowego projektu budżetu dnia 1 grudnia, udało nam się jednak przyspieszyć prace i skończyć przed terminem, aby dać obu organom władzy budżetowej szansę na osiągnięcie porozumienia co do przyszłorocznego budżetu do końca roku”.
+zwycięzca – school of chemical technology, subotica, serbia
+w tym względzie rada podkreśla, że zasada jednolitości i zasada pewności prawa gwarantują wydajność, trwałość, a w efekcie końcowym wiarygodność jednolitego rynku, dlatego wszystkie strony nadal muszą kierować się tymi zasadami w swoich działaniach w odniesieniu do funkcjonowania porozumienia eog.
+beneficjentem drugiego projektu jest instytut badań stosowanych w jerozolimie a kwota dofinansowania przyznanego przez ue wynosi 200 819 euro.
+usługi informacji rzecznej, obejmujące infrastrukturę zarządzania ruchem w ramach sieci śródlądowych szlaków wodnych – wybrano pięć projektów; finansowanie wynosi 7,1 mln eur;
+jak uzgodniono z radą w grudniu 2007 r., komisja jest zdania, że system oparty na kilowatogodzinach byłby znacznie bardziej skuteczny (szczegóły w memo/08/353).
+w obliczu o becnego kryzysu przeciwstawienie się temu problemowi stało się jeszcze bardziej pilne.
+dodatkowe środki kontroli są zawarte we wniosku, który będzie miał zasadnicze znaczenie dla zapewnienia powodzenia temu przedsięwzięciu.
+agenda cyfrowa: badanie dotyczące korzystania z internetu przez dzieci; konkurs promujący treści wysokiej jakości w internecie
+do najczęstszych problemów zaliczały się:
+wniosek, oparty również na przeprowadzonej przez komisję ocenie adekwatności ogólnego prawa żywnościowego, które pochodzi z 2002 r., a więc wymaga uaktualnienia, ma na celu:
+komisja jest członkiem struktury zarządzania nieposiadającym prawa głosu.
+luka w podatku vat wynosiła od 37,9 proc. nieściągniętego vat-u w rumunii do jedynie 1,2 proc. w szwecji.
+prognozy sugerują niewielkie ożywienie w 2010 roku, po którym w roku 2011 nastąpi powrót do szybszego wzrostu.
+nagrody wspierają buma cultuur, snn, holenderskie ministerstwo edukacji, kultury i nauki, prowincja groningen, miasto groningen i europejskie biuro muzyki (european music office).
+dopiero na późniejszym etapie zostaną wyciągnięte wnioski w zakresie polityki, w ścisłym partnerstwie z państwami członkowskimi.
+handel – dauhańska agenda rozwoju
+od tego czasu była kilkakrotnie zmieniona, a ostatnią gruntowną reformę przeprowadzono w 2002 r.
+nie macie prawa ich zawieść!”.
+j. wawrzyniak, mający jedną córkę, pracował w niemczech jako pracownik oddelegowany w okresie od lutego 2006 r. do grudnia 2006 r.
+wiele delegacji podkreśliło, że należy unikać powielania zadań i zapewnić opłacalność.
+informacja komisji europejskiej na temat nielegalnego handlu dziką fauną i florą
+rozporządzenie to zawiera listę tak zwanych „ograniczeń podstawowych", które nie mogą być objęte wyłączeniem grupowym.
+po raz pierwszy komisja określiła wysokość nadmiernych zapasów w roku 2005.
+agnes obel (dania)
+pomimo tych wezwań , i – naruszając obowiązek prawny wynikający z decyzji rady oraz naruszając zobowiązania wobec grecji, włoch i pozostałych państw członkowskich – czechy, węgry i polska nie podjęły jeszcze wymaganych działań.
+to wartości uniwersalne, będące częścią naszego wspólnego dziedzictwa, które odgrywają decydującą rolę w procesie integracji państw członkowskich unii europejskiej oraz ich obywateli”.
+mimo trudnej sytuacji międzynarodowej w 2008 r., eps w dalszym ciągu przynosiła pozytywne rezultaty i została dodatkowo pogłębiona przez dwie nowe inicjatywy: unię dla śródziemnomorza i partnerstwo wschodnie.
+przypomina, jak ważne dla ue są negocjacje z kluczowymi gospodarkami wschodzącymi:
+nie możemy już zezwalać na to, aby nawet niewielka część rybaków łamała przepisy bez żadnych konsekwencji.
+jak wygląda proces przygotowywania i zbierania wkładów do porozumienia z 2015 r. dotyczących redukcji emisji?
+ci, którzy mnie znają, wiedzą, jak wielką wagę przykładam do osobistych spotkań, wymiany poglądów i podróży.
+jedna z pozostałych uczestniczących w kartelu spółek, au optronics, również wniosła skargę do sądu (sprawa t-94/11 ), lecz została ona, wskutek cofnięcia skargi przez tę spółkę, wykreślona z rejestru postanowieniem z dnia 13 czerwca 2013 r.
+te specjalne prawa obejmują prawo wyrażenia sprzeciwu wobec pewnych istotnych decyzji dotyczących zarządzania spółką, co zasadniczo obniża atrakcyjność nabycia udziałów w spółkach państwowych przez innych inwestorów z ue.
+wiceprzewodniczący będą kierować pracą kilku komisarzy oraz koordynować ją, natomiast skład tych zespołów będzie się zmieniał w zależności od potrzeb oraz rozwoju nowych projektów na przestrzeni czasu (zob. załącznik 2).
+całościowa realizacja przyszłościowych scenariuszy, przedstawionych w dokumencie europe 2030, w porozumieniu z tymi, których głos bardzo się liczy: przedstawicielami takich gremiów, jak europejski okrągły stół przemysłowców ( european round table of industrialists, ert), europejskie stowarzyszenie uniwersytetów kształcących na odległość (european association of distance teaching universities, eadtu), liga europejskich uniwersytetów badawczych (league of european research universities, leru), europejskiego stowarzyszenia uniwersytetów (european university association, eua) i sieć european schoolnet , na podstawie dotychczasowych dokonań jrc-ipts i zgodnie z realizowanym obecnie projektem futurium .
+ustanowienie ram prawnych jest po części reakcją na apel wystosowany w lutym przez radę europejską, by utworzyć strategiczne korytarze na potrzeby transportu dużych ilości gazu na europejski rynek.
+europejski semestr na rzecz koordynacji polityki gospodarczej stanowić będzie główne ramy dla dalszych działań nawiązujących do dyskusji w sprawie wymiaru socjalnego.
+rozwiązanie zakładające wprowadzenie szerokiej definicji umów zawieranych na odległość i umów zawieranych poza lokalem przedsiębiorstwa spotkało się z dużym poparciem – dzięki niemu konsumenci będą mieć prawo do konkretnych informacji i do odstąpienia od umowy częściej niż dzieje się to obecnie.
+projekty solidarnościowe
+załączoną do dzisiejszego sprawozdania kompleksową ocenę oparto o własne analizy służb komisji, badania przeprowadzone wraz z organami państw członkowskich i agencjami ue oraz dialog z wieloma zainteresowanymi stronami, w tym z parlamentem europejskim, parlamentami krajowymi, społeczeństwem obywatelskim, ośrodkami analitycznymi, środowiskiem akademickim i przedstawicielami przemysłu.
+ma ona nadrzędne znaczenie dla zapewnienia nieprzerwanych dostaw energii po cenach przystępnych dla konsumentów.
+w opublikowanym dziś badaniu komisji europejskiej stwierdza się, że elastyczne uregulowania czasu pracy są korzystne dla pracodawców i pracowników.
+ochrona środowiska, w tym ochrona gleby i wody;
+transakcje przeliczeń walutowych przez zapis na rachunku dewizowym.
+a instytucje europejskie muszą im pomóc spełnić tę obietnicę.
+obecnie kierowca, który popełnił wykroczenie lub przestępstwo drogowe z udziałem pojazdu zarejestrowanego w innym państwie unii europejskiej, pozostaje, poza nielicznymi wyjątkami, bezkarny w związku z niemożnością ustalenia jego tożsamości lub sprawdzenia adresu rejestracji pojazdu.
+jednakże, aby zapobiec zerwaniu ciągłości w systemie wynagrodzeń, do chwili wejścia w życie nowego rozporządzenia rady przepisy te wciąż wywołują skutki prawne.
+wartość przyrody: przełomowe sprawozdanie pokazuje decydujące znaczenie różnorodności biologicznej dla gospodarki
+zgodnie z prawem austriackim dostawa, przebudowa, naprawa, konserwacja, czarterowanie i wynajem statków powietrznych eksploatowanych przez instytucje państwowe podlega zwolnieniu z vat.
+komisja jest gotowa wspierać modernizację uniwersytetów unijnych w ramach procesu określenia dobrych wzorców i dzielenia się nimi oraz poprzez programy finansowania na rzecz edukacji, badań i innowacji: programu uczenia się przez całe życie, siódmego programu ramowego na rzecz badań i rozwoju, programu na rzecz konkurencyjności i innowacji oraz funduszy strukturalnych i funduszu spójności.
+pierwszy wyrok trybunału w sprawie możliwości wykluczenia z zamówienia publicznego na usługi usługodawców zalegających z zapłatą składek na ubezpieczenie społeczne i podatków
+większe wykorzystanie międzynarodowych kredyt ów
+w celu uniknięcia wtórnego przepływu osób przenoszonych z państwa członkowskiego objętego programem relokacji do innych państw członkowskich, azylanci zostaną poinformowani o skutkach samowolnego przekroczenia granicy, a mianowicie, że zostaną oni odesłani do wyznaczonego państwa członkowskiego przeniesienia w ramach systemu dublińskiego.
+zgodnie z ramami prawnymi w dziedzinie praworządności komisja przystępuje do zorganizowanej wymiany opinii na zasadach współpracy z władzami polskimi, aby zgromadzić i przeanalizować wszelkie istotne informacje pozwalające ocenić, czy istnieją wyraźne przesłanki wskazujące na systemowe zagrożenie praworządności.
+przyjęcie rozporządzenia jest następstwem osiągniętego w pierwszym czytaniu porozumienia z parlamentem europejskim, który głosował nad tą sprawą w dniu 27 września 2011 r. ( 14777/11 ).
+ponadto ekes pragnąłby podkreślić, że niektóre narzędzia (instrument umorzenia lub konwersji długu) i środki zaproponowane przez komisję nie zostały do tej pory sprawdzone w warunkach kryzysu systemowego i wymagają dodatkowych wyjaśnień, by zminimalizować jakiekolwiek wątpliwości wśród inwestorów .
+runda dauhańska jest szansą na lepszą integrację tych rynków w ramach gospodarki światowej.
+spełniły także określony w odnośnych przepisach wymóg zebrania minimalnej liczby podpisów w co najmniej siedmiu państwach członkowskich.
+obie te kwestie uwzględniamy wspólnie w odpowiedzi na wnioski ze strony parlamentu europejskiego i państw członkowskich.
+wymogi zawarte w przepisach obowiązujących w tyrolu nie są ani proporcjonalne, ani konieczne i ograniczają swobodę świadczenia usług w ue.
+według danych opublikowanych dziś przez komisję europejską w obrocie jest niemal 185 milionów kart.
+ue przygotowuje operację eufor – w ścisłej współpracy z onz, nato i innymi podmiotami i w sposób komplementarny do ich działań – tak by móc szybko reagować na rozwój sytuacji humanitarnej i sytuacji w dziedzinie bezpieczeństwa.
+eugen jurzyca minister edukacji, badań, młodzieży i sportu
+na podstawie kodeksu wizowego (rozporządzenia (we) nr 810/2009) i karty praw podstawowych ue osoby ubiegające się o wizę mają prawo do niearbitralnego rozpatrzenia ich wniosków wizowych, a prawo to musi być chronione poprzez sądową procedurę odwoławczą.
+w ostatnich latach udało nam się wzmocnić prawa procesowe.
+a na tej stronie znajduje się lista sygnatariuszy kodeksu najlepszych praktyk dla kobiet w tik:
+ue zachęca strony do uzgodnienia sprawiedliwego i kompleksowego globalnego klucza.
+pytania można również zadawać na oficjalnej stronie na facebooku przedstawicielstwa komisji europejskiej w bułgarii.
+w przypadku bankructwa banku srm, posiadający jasno określone uprawnienia dotyczące podejmowania decyzji w sprawach banków transgranicznych oraz bardzo doświadczony personel, będzie restrukturyzować i likwidować takie banki dużo skuteczniej niż ma to miejsce obecnie ze względu na różnorodność i wielość krajowych organów.
+stocznia gdynia korzystała z różnych środków pomocy (przede wszystkim środków na dokapitalizowanie oraz pożyczek) o wartości 497 mln eur, a także z gwarancji na produkcję w wysokości 915 mln eur (wartość nominalna pomocy).
+państwa członkowskie mogą przyznać pomoc w wysokości do 15 tys. euro na rolnika w okresie trzech lat.
+rezultat nie będzie również idealny.
+śmiertelność poniżej określonego poziomu (ok. 3%) w siedmiu sprawdzanych kolejno po sobie stadach,
+zestawienie informacji: rozwiązanie problemu bezrobocia osób młodych w ue
+w grudniu 2010 r. zniesiono obowiązek wizowy przy podróżach do strefy schengen dla obywateli dwóch kolejnych państw bałkanów zachodnich, albanii oraz bośni i hercegowiny.
+rozporządzenie zmieniające rozporządzenie nr 1234/2007 (rozporządzenie o jednolitej wspólnej organizacji rynku) w odniesieniu do systemu płatności jednolitych i wsparcia dla plantatorów winorośli ( 15399/11 ).
+dwa projekty dotyczą czystych technologii zmierzających do zmniejszenia oddziaływania na środowisko naturalne działalności gospodarczej.
+zwycięzcy wyłonieni na poziomie krajowym wezmą następnie udział w konkursie europejskim zorganizowanym przez komisję europejską jesienią.
+są to m.in. informacje dotyczące klimatu, obrazy satelitarne, zdjęcia i filmy w postaci cyfrowej, zapisy transakcji i sygnały gps.
+problemy zostały rozwiązane w 70 proc. z 301 skontrolowanych przypadków.
+steven borg przedstawiciel w komitecie politycznym i bezpieczeństwa (kpib)
+w celu zmniejszenia liczby odrzutów (ryb wyrzucanych za pokład), ustanowione są małe kwoty dla przyłowów pewnych zasobów, w przypadku których nie są dozwolone ukierunkowane połowy.
+rada oświadczyła, że te partnerstwa na rzecz mobilności należy wziąć pod uwagę w sytuacjach, w których wnoszą one wartość dodaną do zarządzania przepływami migracyjnymi zarówno w ue, jak i w państwach trzecich, przy założeniu, że gotowość do rozwijania partnerstwa i do aktywnej współpracy jest podstawą, na której rozwijają się oferowane przez nie możliwości.
+wszystkie państwa członkowskie zgodziły się, że środki krótkoterminowe powinny być w pełni zgodne z długoterminowymi celami strategii lizbońskiej.
+nie istnieje również procedura pozwalająca zbadać umiejętności językowe podejrzanego, aby stwierdzić, czy wymaga on pomocy tłumacza ustnego.
+rola edukacji w kształtowaniu wartości i postaw młodzieży; szkolenie nauczycieli i włączanie dialogu międzykulturowego do programów szkolnych;
+np. istnieją w ue różne sposoby zwracania operatorom kosztów zatrzymywania i udostępniania danych;
+z okresowego sprawozdania komisji 1 , opierającego się na najnowszych prognozach 2 państw członkowskich, wynika, że dotychczas wprowadzone w życie programy i środki powinny doprowadzić w krajach ue-15 do roku 2010, czyli do połowy okresu realizacji zobowiązań 2008-2012, do zmniejszenia emisji do poziomu 6,9 proc. poniżej poziomów roku bazowego.
+inne zmiany mogłyby obejmować ustalenie określonej długości okresu przyznawanego ofiarom na zastanowienie się, poprawę warunków ramowych traktowania ofiar, w szczególności małoletnich, oraz wzmocnienie obowiązku informowania ofiar o ich prawach.
+w oparciu o zasadę wzajemnego uznawania dyrektywa ta zobowiązuje państwa członkowskie do uznania i wykonania wniosku innego państwa członkowskiego o przedstawienie dowodów w ten sam sposób i w takim samym trybie, jak w przypadku wniosków pochodzących od organu krajowego.
+szkodzi to również konsumentom.
+badania: openaire oknem na wyniki badań naukowych w całej ue
+w razie konieczności decyzja co do zastosowania środków może zostać podjęta przed przystąpieniem i stać się obowiązująca po akcesji.
+państwa członkowskie z zadowoleniem przyjęły to sprawozdanie i podkreśliły znaczenie wielu środków w nim proponowanych.
+rada uważa, że należy umocnić ramy nadzoru zadłużenia poprzez zastosowanie pojęcia „dostatecznego zmniejszania się i zbliżania się do wartości odniesienia w zadowalającym tempie” do wskaźnika zadłużenia w kategoriach jakościowych, uwzględniając warunki makroekonomiczne i dynamikę zadłużenia, w tym dążenie do osiągnięcia odpowiednich poziomów nadwyżek pierwotnych oraz innych środków mających na celu zmniejszenie zadłużenia brutto oraz strategie zarządzania zadłużeniem.
+w odniesieniu do produktów ekologicznych pochodzących z ue państwa członkowskie muszą ustanowić system kontroli.
+dzięki przejrzystym i odpowiedzialnym łańcuchom dostaw przychody nie trafią w ręce grup rebeliantów, tylko zostaną przeznaczone na inwestycje w szkoły i szpitale, na wspieranie dobrze zarządzanych państw opartych na praworządności.
+swobodny przepływ kapitału: komisja wnosi do trybunału sprawiedliwości wspólnot europejskich sprawę przeciw polsce w związku ze szczególnymi uprawnieniami przysługującymi skarbowi państwa w pewnych spółkach
+pomimo tych kontaktów nie udało się jednak jak dotąd wypracować rozwiązania stwierdzonych przez komisję problemów.
+bruksela, dnia 25 listopada 2011 r. – zgodnie z opublikowanym dziś przez komisję badaniem eurobarometru czterech obywateli ue na dziesięciu uważa, że ue potrzebuje skuteczniejszych narzędzi walki z przestępczością zorganizowaną, terroryzmem i ekstremizmem.
+corleap – często zadawane pytania ( kontekst, skład i dalsze działania)
+popiera przedstawione prze komisję następujące propozycje: stwarzania korzystnych warunków dla konkurencyjności, zwłaszcza mśp, przez ułatwianie przepływu wiedzy między bazą naukową a przemysłem; rozważenia możliwości wprowadzenia szczególnych zachęt dla nowych przedsiębiorstw innowacyjnych; poprawy dostępu do źródeł finansowania; wspierania wykorzystywania środków publicznych jako dźwigni zwiększającej poziom prywatnego współfinansowania badań i innowacji; oraz wspierania integracji klastrów biotechnologii i sieci regionalnych;
+birgit grundmann sekretarz stanu, federalne ministerstwo sprawiedliwości
+dalsze informacje: http://eures.europa.eu
+w związku z konkluzjami rady z 24 lipca i 25 września 2008 r. dotyczącymi przyjmowania uchodźców z iraku komisja przeprowadziła w dniach 1–6 listopada 2008 r. misję w syrii i jordanii, by zbadać możliwości przesiedlenia uchodźców z iraku do państw członkowskich, które się na to zgodzą.
+2005 : cork (irlandia)
+wspólny komitet umożliwi obu stronom prowadzenie dyskusji na temat istotnych kwestii i poszukiwanie wspólnie zadowalających rozwiązań sporów.
+rada przyjęła decyzję zatwierdzającą zawarcie porozumienia ze szwajcarią i liechtensteinem w sprawie ich uczestnictwa w pracach fronteksu – europejskiej agencji zarządzania współpracą operacyjną na zewnętrznych granicach ue (dok.
+wpływ kryzysu na zatrudnienie
+ue bacznie obserwuje polityczne wydarzenia na kubie, w tym sytuację w zakresie praw człowieka.
+dokonano 13 aresztowań (głównie w hiszpanii), a sieć została rozbita.
+celem strategii jest umożliwienie ue dotrzymania kroku najważniejszym konkurentom na rynku międzynarodowym, przywrócenie wzrostu gospodarczego w europie i stworzenie miejsc pracy w przemyśle.
+wcześniej już kilkakrotnie wprowadzano zmiany do kodeksu granicznego schengen, aby spełniał on swoje zadanie.
+na szczególne ryzyko narażone są osoby cierpiące na astmę.
+jednym z nich jest starzenie się kadry nauczycielskiej: ponad 40 % nauczycieli szkół średnich w pięciu państwach członkowskich ue (austria, estonia, niderlandy, republika czeska, szwecja) to osoby w wieku 50 lat lub starsze – w niemczech i włoszech udział ten jest nawet wyższy i przekracza 50 %.
+wniosek przewiduje również, że państwa członkowskie zaznaczają na wszystkich istniejących zezwoleniach na pobyt wydanych do innych celów (np. łączenia rodzin, azylu, studiów), czy obywatel państwa trzeciego ma prawo pracować.
+chronią interesy inne niż te, które uwzględniają zasady konkurencji oraz
+wymogi kapitałowe w odniesieniu do najmniejszych firm o najniższym ryzyku zostaną uproszczone.
+dla przykładu, ministrowie odpowiedzialni za politykę regionalną przygotują w portugalii wkład do zielonej księgi na temat zmian klimatycznych przyjętej przez komisję w czerwcu, aby podkreślić znaczenie wprowadzenia terytorialnego aspektu tej kwestii;
+podczas ostatniego posiedzenia rady europejskiej ue wezwała państwa członkowskie do przyspieszenia wykorzystywania środków z europejskich funduszy strukturalnych i inwestycyjnych na rzecz zatrudnienia i wzrostu gospodarczego.
+frank gannon, reprezentujący queensland institute of medical research (qimr), którego jest dyrektorem generalnym i prezesem.
+dopilnowanie, aby żywność zawierająca niedopuszczone substancje aromatyczne została wycofana z rynku, spoczywa na krajowych organach egzekwowania prawa.
+w przypadku niemożności osiągnięcia porozumienia przez małżonków sądy będą dysponować wspólną formułą ustalania prawa właściwego.
+w tym celu, aby zachęcić producentów energii ze źródeł odnawialnych do lepszej integracji z ogólnym rynkiem energii elektrycznej, komisja może przewidzieć udoskonalone zasady dla transgranicznego handlu energią oraz zaproponować odpowiednie środki.
+przegląd krajowych systemów różniących się od siebie ze względu na szczególne drogi rozwoju oraz sytuację w państwie.
+przy założeniu, że turcja spełni w pilnym trybie wszystkie wymogi, komisja postanowiła wystąpić z wnioskiem o przeniesienie turcji do wykazu państw zwolnionych z obowiązku wizowego.
+zawiadomienie o podróżach między ue a wielką brytanią
+niektórzy spośród nich są przetrzymywani od ponad dziesięciu lat.
+traktaty zobowiązują parlament, którego siedzibę wyznaczono w strasburgu, do odbycia dwunastu comiesięcznych posiedzeń plenarnych, w tym posiedzenia budżetowego, nie określając jednak czasu trwania tych posiedzeń.
+wezwał państwa członkowskie do poszanowania swoich zobowiązań w ramach konwencji o szkołach europejskich, zwłaszcza w odniesieniu do delegowania nauczycieli.
+w przypadku innych, nowych produktów wyzwania są podobne: na przykład problemy ze zrozumieniem czy zręcznością mogą stanowić barierę w posługiwaniu się elektronicznym programem telewizji cyfrowej.
+mam nadzieję, że 30 marca 2019 r. europejczycy obudzą się w unii, w której wszyscy szanujemy nasze wartości.
+tam, gdzie jest to konieczne, przeprowadza własne audyty systemów zarządzania i kontroli.
+szczególną uwagę zwrócono na kwestie gospodarki wodnej, właściwego użytkowania wody, jej zachowywania, odzyskiwania i uzdatniania.
+komisja, rada oraz parlament europejski osiągnęły porozumienie w sprawie naszego wniosku dotyczącego pełnego finansowania działań na rzecz odbudowy w następstwie katastrof naturalnych z pomocą europejskiego funduszu rozwoju regionalnego.
+w gestii państwa członkowskiego pozostaje wybór kwalifikujących się projektów.
+od uczestniczących w programie państw członkowskich, oprócz bezpłatnego dostarczania owoców i warzyw, wymagać się będzie określenia krajowych strategii uwzględniających inicjatywy edukacyjne i podnoszących poziom świadomości oraz dzielenia się najlepszymi rozwiązaniami.
+w czerwcu komisja przyjęła komunikat „budżet z perspektywy »europy 2020«” w sprawie kolejnych wieloletnich ram finansowych (2014–2020), w którym zaproponowała utworzenie instrumentu „łącząc europę” w celu wspierania pełnego wdrożenia priorytetowej infrastruktury energetycznej, transportowej i cyfrowej w ramach jednego funduszu w wysokości 40 mld eur, z czego 9,1 mld eur przeznaczono na energetykę.
+jeżeli władze greckie nie podejmą działań w ciągu dwóch miesięcy, sprawa może zostać skierowana do trybunału sprawiedliwości ue.
+większość tak potrzebnych nam surowców jest dziełem natury, podobnie jak wiele najskuteczniejszych znanych leków.
+składka naliczana w oparciu o dochód narodowy brutto (dnb), czyli wkład proporcjonalny do zasobności każdego z państw członkowskich, miała coraz większe znaczenie i obecnie stanowi trzy czwarte budżetu.
+z tego właśnie powodu komisja wezwała państwa członkowskie do zwiększenia i skoncentrowania wysiłków na konieczności zmniejszenia opóźnień w transpozycji obowiązującego prawa.
+erwis prowadzony przez komisjê europejską, dyrekcję generalną ds.
+zmierzają one w kierunku zwiększenia odporności na wstrząsy ekonomiczne, poprawy jakości i liczby miejsc pracy, modernizacji systemów ochrony socjalnej oraz lepszego łączenia życia zawodowego i prywatnego.
+swobodny przepływ towarów: komisja wzywa słowenię do zniesienia ograniczeń dotyczących instalacji odgromowych
+w odróżnieniu od innych programów komisji europejskiej w dziedzinie edukacji uczestnikom etwinning nie są przyznawane dotacje.
+ogłoszenie 21 maja europejskim dniem natury 2000.
+w przeprowadzonych na początku tego roku konsultacjach publicznych zebrano ponad 11 000 odpowiedzi.
+platformy inwestycyjne mogą również mieć charakter geograficzny: w tym platformy regionalne, krajowe lub transgraniczne.
+dlaczego nie można po prostu skorzystać z funduszów amif lub isf?
+zwiększenie finansowania dla trzech odnośnych agencji ue na 2015 r. o 1,3 mln euro, które obejmie 60 pracowników agencji frontex, 30 pracowników easo i 30 pracowników europolu.
+plan działań ue w sprawie materiałów chemicznych, biologicznych lub radiologicznych/jądrowych (cbrn), przyjęty w listopadzie 2009 r., obejmuje 130 konkretnych działań w obszarze zapobiegania incydentom z wykorzystaniem materiałów cbrn oraz wykrywania ich i reagowania na nie.
+zjednoczone królestwo przesłało komisji europejskiej swoje narodowe strategiczne ramy odniesienia w kwietniu 2007 r.
+prawo ue zapewnia odpowiednią równowagę między ochroną praw unijnych inwestorów a umożliwieniem rządom wprowadzania regulacji w interesie publicznym.
+w dziedzinie rybołówstwa ministrowie przeprowadzili debatę jawną na temat europejskiego funduszu morskiego i rybackiego (efmr) w ramach reformy wspólnej polityki rybołówstwa.
+przedsiębiorstwo sas institute inc. opracowało system sas, który stanowi zintegrowany zestaw programów umożliwiający użytkownikom przetwarzanie i analizę danych, przede wszystkim danych statystycznych.
+potencjał procesu rozszerzenia jako impulsu do przemian daje nadzieję w tych trudnych czasach, zarówno dla państw członkowskich unii europejskiej, jak i dla państw pragnących przystąpić do ue” .
+w ramach programu kosmicznego proponuje się nowe działania w zakresie monitorowania tych zdarzeń, tak by zbudować autonomiczne europejskie zdolności w tych dziedzinach o krytycznym znaczeniu.
+oczekuje z zainteresowaniem na wniosek komisji uzupełniający mechanizm oceny schengen;
+konieczne są środki podnoszące zdolność adaptacji systemów naturalnych i ludzkich do skutków zmian klimatu.
+zgodnie z nowym porozumieniem stany zjednoczone zobowiązują się, że na mocy amerykańskich przepisów dostęp organów publicznych do danych osobowych przekazywanych w ramach nowego mechanizmu będzie podlegać jasnym warunkom, ograniczeniom i nadzorowi, uniemożliwiającym powszechny dostęp do takich danych.
+w dniu dzisiejszym ue wszczęła postępowanie w ramach światowej organizacji handlu (wto) przeciwko chińskim przepisom naruszającym prawa własności intelektualnej europejskich przedsiębiorstw.
+przejrzystość i zrównoważony charakter unijnej oceny ryzyka w łańcuchu żywnościowym
+projekt skierowany jest do kobiet prowadzących działalność rolniczą, grup ludności tubylczej i żon osób zajmujących się zbieraniem i segregacją odpadów na tym obszarze;
+europejska sieć obserwacyjna planowania przestrzennego (espon) została powołana, aby wspierać tworzenie polityki oraz budowanie europejskiej wspólnoty naukowej w dziedzinie rozwoju terytorialnego.
+w opinii tej komitet „domaga się zagwarantowania w nowej dyrektywie weee, że systemy zgodności będą zapewniały właściwym władzom lokalnym i regionalnym odpowiednie i stałe rekompensaty za wszelkie obciążenia finansowe lub administracyjne, które będą konieczne w celu wdrożenia dyrektywy”.
+kwoty 1 199 mld eur (10 % pkb) w formie gwarancji państwowych do wykorzystania, udzielanych na finansowanie banków i inne (krótkoterminowe) środki wsparcia płynności;
+jakie są główne zmiany wprowadzone nowymi przepisami dotyczącymi praw jazdy?
+1 kod źródłowy, leżący u podstawy programu komputerowego, jest napisany przez programistę.
+europejscy partnerzy społeczni przedstawili nowe deklaracje zobowiązań w sektorze budowlanym, chemicznym, handlu i edukacji.
+konsumenci dali nam wyraźnie do zrozumienia, że przepustowość łączy internetowych i jakość usług są dalekie od tego, co im obiecano.
+6 państw członkowskich w trybunale
+ponieważ ilość szkodliwych odpadów z tworzyw sztucznych w morzach i oceanach rośnie w zastraszającym tempie, komisja europejska proponuje wprowadzenie nowych unijnych przepisów dotyczących 10 produktów jednorazowego użytku z tworzyw sztucznych, które najczęściej zaśmiecają europejskie plaże i morza, jak również zagubionych i porzuconych narzędzi połowowych.
+38 proc. respondentów uważa, że gospodarka europejska jest w „złej” kondycji (wzrost o 1 proc.), a 13 proc. nie ma zdania.
+wobec rosnącego zainteresowania tą inicjatywą wszystkie kraje europejskie będą mogły w niej uczestniczyć od 2011 r.
+w ramach nowego systemu wysoko wykwalifikowane osoby objęte ochroną międzynarodową będą mogły ubiegać się o niebieską kartę.
+połowy z roku na rok spadają a społeczności na terenach nadmorskich, które często utrzymują się tylko z połowów, obserwują, jak zmniejszają się ich możliwości gospodarcze.
+ionut ciprian iuga sekretarz stanu, ministerstwo środowiska i zmiany klimatu
+takie było przesłanie michela platiniego, przewodniczącego uefa, wyrażone podczas środowej sesji plenarnej komitetu regionów w brukseli.
+zgodnie z obowiązującym stanem prawnym przedsiębiorstwa i konsumenci operujący na jednolitym rynku mają do czynienia z różnymi krajowymi przepisami prawa umów dotyczącymi transakcji transgranicznych.
+z tego względu rada wyraża zadowolenie z ponownego nawiązania dialogu między rządem drk a rządem rwandy i zachęca je do intensyfikacji współpracy z myślą o normalizacji stosunków i przyczynieniu się do trwałej stabilizacji sytuacji.
+wypracowane w kolejnych latach zyski apple sales international stale rosły, natomiast zyski podlegające opodatkowaniu w irlandii na mocy indywidualnej interpretacji podatkowej – nie.
+po potwierdzeniu tych danych przez eurostat w dniu 23 kwietnia 2012 r., a także biorąc pod uwagę swoją wiosenną prognozę z 2012 r. wskazującą, że deficyty te utrzymają się na poziomie poniżej 3% pkb, komisja uznała korektę nadmiernego deficytu za pewną.
+innymi słowy, przedsiębiorstwa i grupy przedsiębiorstw będą mogły korzystać z jednolitego unijnego systemu obliczania dochodu podlegającego opodatkowaniu zamiast dostosowywać się do różnych wymogów obowiązujących w poszczególnych państwach członkowskich, na terenie których prowadzą działalność.
+grupa robocza spotkała się dziś (tj. 6 maja), aby podsumować postępy osiągnięte w okresie poprzedzającym wybory europejskie w zeszłym roku.
+rada przyjmuje do wiadomości komunikat komisji zatytułowany „europa 2020 – strategia na rzecz inteligentnego i zrównoważonego rozwoju sprzyjającego włączeniu społecznemu”.
+zdaniem ekes-u przyszła umowa może wnieść rzeczywistą wartość dodaną i pomóc najsłab szym w ponownym podjęciu pracy.
+komitet zwraca się o przedłużenie obowiązywania obecnej dyrektywy i o zaplanowanie ewentualnej pełnej liberalizacji sektora pocztowego od 1 stycznia 2012 r. pod warunkiem, że do tego czasu znalezione zostaną w ścisłej współpracy ze wszystkimi zainteresowanymi stronami wiarygodne propozycje finansowania wnoszące wartość dodaną w stosunku do zastrzeżonego obszaru i wreszcie, że do usługi powszechnej włączone zostaną specyficzne przesyłki pocztowe wysyłane do osób niewidomych i niedowidzących oraz ich organizacji.
+harmonizacja z prawodawstwem ue i stopniowa integracja rynku: kraje partnerskie rozpoczęły reformy mające na celu dostosowanie ich systemów transportowych do norm ue.
+ustanowienie europolu jako agencji ue
+rada potwierdziła także porozumienie co do tego, że tekst ma zastosowanie wyłącznie do transgranicznej wymiany danych osobowych.
+zwiększenie czynnej ochrony przyrody będzie możliwe m.in. poprzez działania związane z ochroną siedlisk oraz zachowaniem różnorodności gatunkowej.
+gmes – europejskie narzędzie przyczyniające się do bezpieczeństwa, pomagające w walce ze zmianą klimatu i pobudzające konkurencyjność
+europejski portal zostanie stworzony, by ułatwić dostęp do informacji i procedur europejskich.
+oczekuje się także istotnych postępów w rozwiązywaniu problemów w zakresie interoperacyjności na terenie ue w związku z podpisem elektronicznym, e-tożsamością oraz płatnością elektroniczną.
+powinno to budzić naszą dumę, a nie obawy.
+projekty te są dobrym przykładem podejścia do spraw, które mogą poprawić nasze życie, a w tym konkretnym przypadku potencjalnie nawet je ratować.
+sąd stwierdził, że viaguara s.a. próbuje poprzez używanie znaku towarowego podobnego do wcześniejszego znaku towarowego cieszącego się renomą działać w jego cieniu w celu skorzystania z jego atrakcyjności, reputacji i prestiżu oraz wykorzystać bez żadnej rekompensaty finansowej wysiłek handlowy włożony przez właściciela wcześniejszego znaku towarowego w wykreowanie i utrzymanie jego wizerunku, tak aby promować swoje własne towary.
+rada potwierdza swoje przywiązanie do idei globalnego i regionalnego podejścia do rozwiązania konfliktu izraelsko-arabskiego.
+ramy wymiaru północnego stanowią fundament zewnętrznych aspektów współpracy w regionie morza bałtyckiego.
+parlament europejski i państwa członkowskie popierają podejście do zaproszenia do składania uwag.
+strona internetowa komisji europejskiej poświęcona ochronie konsularnej:
+w wyniku niezrównoważonej działalności człowieka gatunki giną na niespotykaną dotychczas skalę, co przynosi nieodwracalne skutki.
+lista proponowanych kandydatów na komisarzy w następnej komisji (w porządku alfabetycznym):
+kantabria okazała się być przykładem dla całej unii europejskiej, jak mądrze wprowadzać politykę spójności.
+w 2015 r. komisja sporządzi sprawozdanie z poczynionych postępów.
+delegacja cypru, przy poparciu delegacji grecji, hiszpanii, francji i włoch, poinformowała radę o powadze sytuacji związanej z olbrzymimi pożarami, które 29 czerwca spustoszyły las i obszary rolne.
+uchybienia zobowiązaniom państwa członkowskiego: komisja wnosi sprawy przeciwko grecji, irlandii i rumunii do trybunału sprawiedliwości w związku z niewdrożeniem przepisów dotyczących przeciwdziałania praniu pieniędzy
+zostało ono przedłużone o kolejny rok.
+szczególny nacisk położony zostanie na działania służące osiąganiu celów krajowych i środkom służącym usuwaniu czynników, które ograniczają zrównoważony rozwój na szczeblu krajowym.
+międzynarodowa agencja energetyczna zakłada, że import lng do europy wzrośnie do 2040 r. o niemal 20 proc. w porównaniu z wartościami z 2016 r.
+podczas obecnej prezydencji rada będzie również spełniała rolę kierownictwa politycznego w odniesieniu do sprawozdania komisji dotyczącego regulacji produkcji ekologicznej.
+we wniosku proponuje się między innymi utworzenie europejskiej legitymacji zawodowej, pewne zmiany w dyrektywie (takie jak dodanie zasady częściowego dostępu do niektórych zawodów, sprecyzowanie niektórych wymogów dotyczących wyszkolenia itp.), a także środków mających na celu skuteczniejsze korzystanie z istniejących instrumentów, takich jak system wymiany informacji na rynku wewnętrznym (imi) 1 .
+komisja europejska wezwała dzisiaj do podjęcia ogólnoeuropejskich wysiłków zmierzających do nadania impetu kluczowym technologiom wspomagającym (ket).
+na podstawie przeprowadzanych audytów i kontroli sporządza on sprawozdanie roczne oraz sprawozdania specjalne.
+pozytywnie oceniły także fakt, że komisja zamierza dalej pracować nad stworzeniem odpowiednich wskaźników stosowanych w monitorowaniu wpływu badań na wzrost gospodarczy.
+oznacza to stabilne otoczenie regulacyjne, dzięki któremu zmniejszą się różnice w praktykach regulacyjnych w poszczególnych krajach ue.
+regiony najbardziej oddalone
+niedawne wydarzenia stanowią potwierdzenie potrzeby przyjęcia takiego politycznego podejścia w unii europejskiej.
+białoruś (projekt opinii),
+reprezentujący rotacyjną prezydencję kanclerz austrii, sebastian kurz powiedział: cyfryzacja jest najważniejszym procesem, który w przyszłych dziesięcioleciach w radykalny sposób odmieni nasze życie.
+nieformalne posiedzenie ministrów w sprawie transeuropejskiej sieci transportowej
+podejmowania działań ukierunkowanych na zapobieganie ponownemu pojawianiu się niebezpiecznych produktów, które zostały wcześniej usunięte.
+a) ma ono wesprzeć właściwe funkcjonowanie rynku wewnętrznego, zapewniając swobodny przepływ danych nieosobowych w ue.
+klauzula opóźnienia przystąpienia (art. 39 aktu przystąpienia)
+musimy zachęcać do przedsiębiorczości, gdyż mśp stały się główną siłą napędową innowacyjności”.
+konsultacje w sprawie sekurytyzacji
+wobec tego, priorytety zawarte w jego polityce dochodzeniowej pozostają teoretyczne.
+ue i państwa eog – efta będą wspólnie dążyć do osiągnięcia tych celów.
+mechanizm współpracy i weryfikacji dotyczy bułgarii i rumunii.
+dlaczego komisja popiera utworzenie stanowiska europejskiego ministra gospodarki i finansów?
+komisja dokonała przeglądu systemu handlu uprawnieniami do emisji, upewniając się, że jest to najbardziej skuteczny i opłacalny sposób ograniczenia emisji w nadchodzącym dziesięcioleciu.
+zgodnie z ramami strategicznymi ue rada do spraw zagranicznych powinna w październiku przedstawić radzie europejskiej sprawozdanie w sprawie realizacji uzgodnionych działań.
+obchody 25. rocznicy istnienia programu erasmus rozpoczną się dziś w brukseli od konferencji poświęconej ocenie osiągnięć programu i jego przyszłości.
+dane dostępne na temat stad ryb głębinowych nie są jednakże wystarczające do dokonania przez naukowców pełnej oceny stanu stad, ani pod względem liczebności, ani śmiertelności połowowej.
+brian cowen minister finansów
+liczba osób wyjeżdżających za granicę na studia zmniejszyła się w 3 krajach (luksemburg, węgry i polska), natomiast w 16 państwach odnotowano wzrost powyżej średniej.
+w styczniu w stanie jonglei w sudanie południowym uzbrojona grupa splądrowała lokale onz i organizacji pozarządowych, zabijając trzech miejscowych pracowników pomocy.
+kontrola wspólnej organizacji rynku tytoniu
+rada ponawia swój apel do rządu jemeńskiego i do wszystkich stron, by natychmiast podjęły z partiami opozycyjnymi i młodzieżą konstruktywny i wszechstronny dialog, który obejmie wszystkie zainteresowane podmioty.
+nowa inicjatywa branży kosmetycznej dotycząca właściwych oznakowań filtrów przeciwsłonecznych jest przykładem odpowiedzialnego zachowania przedsiębiorców.
+zmiana przepisów dotyczących ataków na systemy informatyczne przewiduje zaostrzenie kar i zajęcie się nowymi zagrożeniami, jakie stanowią ataki cybernetyczne na dużą skalę.
+prezes trybunału, pan hubert weber powiedział na koniec: "
+współpraca między komitetami krajowymi i mkck na rzecz wprowadzania w życie międzynarodowego prawa humanitarnego jest nieoceniona w propagowaniu skutecznego stosowania tego prawa.
+to wspaniała wiadomość dla obywateli i dla przedsiębiorstw.
+zastosowano w nim również nowe podejście – będące odzwierciedleniem podejścia stosowanego w dziedzinie bezpieczeństwa żywności – zwiększające odpowiedzialność podmiotów w zakresie dobrostanu.
+popieramy wolną i otwartą wymianę poglądów na temat sposobów usunięcia luk, jakie nadal istnieją w systemie jednolitego rynku.
+w ramach normy ue wprowadza się wymóg testów stabilności na etapie produkcji oraz obowiązek projektowania chodzików w sposób ograniczający ryzyko urazów.
+musimy teraz dopilnować, aby wzrost nie ucierpiał wskutek zagrożeń związanych ze stabilnością finansową.
+stawki roamingowe nadal są przeciętnie czterokrotnie wyższe od stawek krajowych.
+zgadzając się ze stanowiskiem przewodniczącego, georgios dassis, przewodniczący grupy pracowników (grupa ii) , skrytykował potęgę rynków finansowych.
+sytuacja na rynku paszy
+dodano link do tekstu rozporządzenia.]
+w nowym kolegium znajdzie się siedmioro wiceprzewodniczących – sześcioro 1 oprócz wysokiej przedstawiciel unii do spraw zagranicznych i polityki bezpieczeństwa ( federiki mogherini ), z których każdy będzie kierował zespołem projektowym .
+cypr podkreślił, że ten zakaz, wprowadzony w momencie inwazji tureckiej w północnej części cypru, która miała miejsce w roku 1974, stanowi pogwałcenie prawa międzynarodowego i zagraża rentowności cypryjskich linii lotniczych, które w wielu przypadkach są zmuszone do wybierania dłuższych tras, niż byłoby to konieczne.
+umowy zmieniającej umowę między ue a australią w sprawie wzajemnego uznawania w odniesieniu do oceny zgodności, certyfikatów i oznakowania; oraz
+w ograniczonej liczbie projektów w polsce i na węgrzech, w przypadku których beneficjentami programów są przedsiębiorstwa prowadzące działalność gospodarczą, dotacje mogą być dla tych przedsiębiorstw źródłem korzyści gospodarczej i tym samym będą postrzegane jako pomoc państwa.
+do udziału w tej platformie współpracy zostaną zaproszeni operatorzy portali społecznościowych, producenci urządzeń przenośnych i konsoli do gier, dostawcy usług internetowych, dostawcy oprogramowania używanego w urządzeniach przenośnych, dostawcy treści do tych urządzeń, organizacje konsumenckie, naukowcy i organizacje pracujące na rzecz dzieci.
+propagowanie biopaliw jako skutecznej alternatywy dla ropy w sektorze transportu
+w 2013 i 2014 r. w całej unii europejskiej odbędzie się wiele takich dialogów, a liczni europejscy, krajowi i lokalni politycy będą podejmować debatę z obywatelami ze wszystkich środowisk.
+poprzez wspieranie zrównoważonego rozwoju i inwestycji na morzu, dyrektywa przyczyni się do urzeczywistnienia potencjału europejskiej „niebieskiej gospodarki” w zakresie wzrostu gospodarczego i zatrudnienia”.
+komisja zamierza również propagować przedsiębiorczość w konkretnych segmentach społeczeństwa :
+tymczasem to nie europa przyczyniła się do nadmiernego zadłużenia sektora prywatnego i braku odpowiedzialności sektora finansowego, wręcz przeciwnie.
+dzisiejsze sprawozdanie wskazuje również, że rozbieżne regulacje w poszczególnych państwach ue nadal stanowią przeszkodę w utworzeniu rzeczywistego jednolitego rynku operatorów i konsumentów usług telekomunikacyjnych.
+ebc, jako organ nadzorczy, sygnalizowałby, że bank w strefie euro lub kraju członkowskim uczestniczącym w unii bankowej doświadcza poważnych trudności finansowych i musi zostać zrestrukturyzowany.
+podczas , gdy głównym celem polityki pieniężnej jest utrzymanie stabilności cen, ems służy całkowicie odmiennemu celowi, a mianowicie zapewnieniu stabilności strefy euro w całości.
+ponadto w ramach programu przyznano 38 tys. stypendiów kadrze uniwersyteckiej oraz nauczycielom akademickim w celu prowadzenia zajęć dydaktycznych lub odbycia szkoleń za granicą, o 4 proc. więcej niż w roku poprzednim.
+rozporządzenie ma również na celu wypełnienie luk w istniejącym systemie oraz poprawę jakości danych pod każdym możliwym względem.
+wspomniany wniosek pozwoli wyeliminować te sprzeczności.
+zakaz nadużywania pozycji dominującej
+jeśli chodzi o zarządzanie emsa, tekst proponowany przez komisję ma na celu zwłaszcza wyjaśnienie roli różnych podmiotów w organizacji wizyt i inspekcji prowadzonych przez emsa, co ma pomóc zapobiec konfliktom interesów.
+sprawozdanie specjalne nr 2/2013 zatytułowane jest „czy komisja zapewniła wydajną realizację siódmego programu ramowego w zakresie badań?”.
+w wyniku przeglądu w lutym i w maju włoskie organy wykonawcze nałożyły na 9 dużych przedsiębiorstw, którym udowodniono naruszenie prawa, pokaźne kary na łączną kwotę około 2 mln euro.
+komisja jest zdania, że władze nie dokonały oceny skutków projektu dla tego obszaru zgodnie z dyrektywą siedliskową (dyrektywą rady 92/43/ewg).
+traktaty 1 zobowiązują parlament, którego siedziba znajduje się w strasburgu, do przeprowadzenia dwunastu comiesięcznych posiedzeń plenarnych w roku, w tym posiedzenia budżetowego, nie określając czasu trwania owych posiedzeń.
+w ogłoszonym dziś komunikacie wspiera się działania służące uwolnieniu tego potencjału poprzez jak najlepsze wykorzystanie obowiązujących przepisów, dając jednocześnie państwom członkowskim możliwość dokonania wyborów najbardziej odpowiednich do ich sytuacji.
+środki przeciwdrobnoustrojowe znacznie zmniejszyły zagrożenie chorobami zakaźnymi.
+zgodnie z kodeksem postępowania komisarzy (c(2011) 2904) komisarze mogą angażować się w działalność polityczną.
+ostatnią opinią ekes-u poświęconą tej tematyce jest opinia w sprawie ubóstwa kobiet w europie przygotowana przez sprawozdawcę brendę king (grupa i – pracodawcy, wielka brytania).
+kiedy rodzice starający się związać koniec z końcem, niedawno zwolnieni pracownicy, studenci obawiający się, że niezależnie od swoich starań, nie znajdą pracy, myślą o europie – pokój nie jest pierwszą sprawą, która przychodzi im do głowy.
+podczas lunchu ministrowie środowiska omówili wyniki konferencji kopenhaskiej w sprawie zmiany klimatu oraz dalsze działania.
+komitet regionów (kr) wezwał ue do niezwłocznego wprowadzenia obowiązkowych ocen oddziaływania na środowisko (ooś) dla wszystkich przedsięwzięć związanych z wydobyciem gazu łupkowego i ropy zamkniętej.
+najnowsza tabela wyników dostępna jest na stronie internetowej komisji europejskiej:
+jeżeli hiszpania w ciągu dwóch miesięcy nie zgłosi środków mających na celu całkowite spełnienie zobowiązań wynikających z dyrektywy, komisja może podjąć decyzję o skierowaniu sprawy do trybunału sprawiedliwości ue.
+zasadniczym celem szkoleń organizowanych przez frontex musi być w dalszym ciągu kształcenie wśród funkcjonariuszy straży granicznej umiejętności potrzebnych do prawidłowego i spójnego stosowania dorobku schengen.
+ich zobowiązania mieszczą się w jednym z kilku kierunków wyznaczonych w ramach zintegrowanego podejścia: zachowanie się użytkowników, osiągi pojazdów i jakość infrastruktury.
+pełne sprawozdanie grupy na temat zwiększenia wykorzystania instrumentów finansowych
+budzi ona duże kontrowersje, a ja oczywiście nie pozostaję głucha na argumenty.
+zawarte przez ue umowy o readmisji: ocena prowadzona przez komisję
+z jej poglądami zgodziła się profesor magdalena środa , która przedstawiła pomysł sporządzenia manifestu sopockiego, zawierającego zasady przyświecające etycznemu zarządzaniu w biznesie.
+przykładem szczególnych starań poczynionych w celu uproszczenia programów wydatków jest rolnictwo – główny obszar odnotowanej przez trybunał poprawy.
+wspieranie badań podstawowych
+jesienią bieżącego roku komisja planuje przyjąć decyzję stwierdzającą odpowiedni stopień ochrony zgodnie ze zwykłą procedurą:
+komunikat prasowy oraz notatka informacyjna wydane przez cedefop:
+do niemiec skierowano stosowne wezwanie w formie uzasadnionej opinii.
+interwencje na tych wcześniejszych etapach mogą zatem pozwolić na dużą racjonalizację kosztów.
+grafen i związane z nim materiały mają potencjał, by znacząco wpłynąć na tik w perspektywie krótko- i długoterminowej, poprzez zintegrowanie części wykonanych z grafenu z elektroniką krzemową oraz stopniowe zastępowanie krzemu lub umożliwienie całkowicie nowych zastosowań.
+kanclerz zachęciła gości do obejrzenia innych zdjęć z wystawy objazdowej, pokazywanych w centrum kulturalnym tour & taxis oraz biurze regionalnym badenii-wirtembergii (rue belliard) w brukseli.
+ogólnym jego celem jest nadanie procesowi integracji europejskiej wymiaru obywatelskiego.
+w dniu dzisiejszym, w następstwie porozumienia partnerów społecznych w sprawie warunków pracy w sektorze rybołówstwa, komisja europejska opracowuje oparty na porozumieniu wniosek legislacyjny dotyczący dyrektywy.
+od 2012 r. komisja jest motorem inicjatyw ue w tej dziedzinie, obejmujących między innymi:
+pomaga również filmowcom z ameryki północnej w kontakcie z twórcami europejskimi.
+w kwietniu 2015 r. rada ministrów ue oraz parlament europejski przyjęły rozporządzenie w sprawie opłat interchange, które począwszy od grudnia 2015 r. będzie ograniczać tego rodzaju opłaty dla kart wydanych i wykorzystywanych w europie (do maksymalnie 0,20% dla kart debetowych i 0,30% dla kart kredytowych).
+w fazie drugiej (2013-2014) odbędą się szeroko zakrojone próby innowacyjnych i złożonych usług i aplikacji internetowych, obejmujących szeroki zakres dziedzin w całej europie.
+europejski pakt na rzecz zwalczania narkotyków syntetycznych obejmuje cztery główne dziedziny:
+europejski rok aktywności osób starszych powinien zachęcić i wesprzeć wysiłki państw członkowskich, władz regionalnych i lokalnych, partnerów społecznych i społeczeństwa obywatelskiego w celu promowania aktywności osób starszych i solidarności międzypokoleniowej oraz zwiększenia wykorzystania potencjału pokoleń wyżu demograficznego.
+zakres tych wniosków jest ściśle ograniczony do potwierdzenia nowych siedzib agencji w dwóch rozporządzeniach ustanawiających agencje.
+kierując się zasadą pomocniczości prawodawstwo ue daje państwom członkowskim wybór środków przestrzegania wartości dopuszczalnych.
+przeznaczenie niemal połowy budżetu (środki na zobowiązania w kwocie 69,8 mld euro) na cele związane z ożywieniem wzrostu gospodarczego, tworzeniem miejsc pracy i zwiększaniem konkurencyjności;
+wraz z premierem călinem popescu-tăriceanu uroczyście podpisze ona narodowe strategiczne ramy odniesienia (nsro) rumunii, przyjęte przez komisję 25 czerwca.
+sprawozdanie przedstawia jasny obraz działań, jakie należy wykonać, by pomóc przedsiębiorstwom w uzyskaniu dostępu do nowych rynków i nowych możliwości biznesowych w zglobalizowanym świecie.
+podobnie jak obecnie, składanie skarg należeć będzie do przemysłu ue, ale jego przedstawiciele będą mogli skorzystać z takich sprawozdań komisji w celu przedstawienia swojej sprawy.
+ta dyrektywa to ważne narzędzie dla przeprowadzenia skoordynowanego wdrożenia its w europie.
+trybunał skontrolował 29 umów (projektów) zrealizowanych głównie w 2002 i 2003 r., tj. najnowsze projekty, których trwałość mogła zostać oceniona.
+w ostatnim dziesięcioleciu liczba obywateli ue mieszkających lub pracujących w innym państwie członkowskim niż państwo pochodzenia wzrosła prawie dwukrotnie – do 17 mln w 2017 r. europejski urząd ds.
+fundacje działają m.in. w obszarze usług socjalnych i zdrowotnych oraz wspierają badania naukowe i kulturę.
+prawodawstwo chorwackie jest w pełni zgodne z traktatem.
+w przypadku starszych pracowników szesnaście państw członkowskich osiągnęło wzrost o co najmniej 5 punktów procentowych, przy czym największe wzrosty (powyżej 10 punktów procentowych) w finlandii, na węgrzech i na łotwie.
+wniosek polski dotyczy 658 osób zwolnionych z przedsiębiorstwa h.cegielski-poznań oraz u czterech jego dostawców.
+konferencja powinna przyspieszyć globalne przechodzenie do zielonej gospodarki, promując w związku z tym ochronę środowiska, przyczyniając się do eliminacji ubóstwa oraz stymulując niskoemisyjny i zasobooszczędny wzrost gospodarczy;
+powinna przyczynić się do wzmocnienia globalnych ram instytucjonalnych na rzecz zrównoważonego rozwoju, które powinno obejmować podniesienie statusu unep poprzez przekształcenie go w wyspecjalizowaną agencję;
+te zmiany umożliwią branży turystycznej radzenie sobie ze spodziewanym znaczącym wzrostem odwiedzających europę.
+tempo konsolidacji budżetowej w odniesieniu do salda strukturalnego wskazuje na zasadniczo neutralny kurs polityki budżetowej.
+dyrektywa wejdzie w życie, po tym jak zostanie opublikowana w dzienniku urzędowym ue, a państwa członkowskie będą miały dwa lata na włączenie nowych przepisów do prawa krajowego.
+w przypadku współpracy transgranicznej wsparciem obejmowane będą regiony unii na poziomie nuts 3 wzdłuż wszystkich wewnętrznych i zewnętrznych granic lądowych i wszystkie regiony unii na poziomie nuts 3 położone wzdłuż granic morskich, oddalone od siebie o nie więcej niż 150 kilometrów, bez uszczerbku dla ewentualnych korekt niezbędnych do zapewnienia spójności i ciągłości obszarów objętych programami współpracy ustanowionych dla okresu programowania 2007–2013.
+wspólne oświadczenie komisji i rządu chińskiej republiki ludowej
+komisarz hübner odwiedzi przedsiębiorstwo novamont w miejscowości terni, które jest pionierem w branży produktów ulegających biodegradacji.
+rada przyjęła do wiadomości informacje prezydencji i komisji na temat wyniku tegorocznej konferencji ministerialnej poświęconej transeuropejskiej sieci transportowej (ten-t); ta doroczna konferencja odbyła się w saragossie (hiszpania) 8 i 9 czerwca 2010 r. (11347/10 ).
+w konsekwencji powstał jednak również szereg braków w zakresie ochrony socjalnej, które należy zniwelować.
+wzywa wszystkie strony do powstrzymania się od przemocy i do powściągliwości w działaniach.
+wsparcie ue na rzecz trwałości;
+technologia związana z dronami cywilnymi stale się rozwija, obiecując znaczny potencjał wzrostu gospodarczego i nowe miejsca pracy.
+przy podejmowaniu decyzji o tym, do którego państwa trafi dana osoba, będą uwzględniane jej kwalifikacje i umiejętności, w tym językowe i zawodowe.
+sto lat, europo – zmiana kierunku do europy”.
+dalsze działania
+dzięki temu w 2009 roku powinno być możliwe przeprowadzenie ostatecznych testów sis ii, uruchomienie centralnego sis ii oraz migracja wszystkich systemów krajowych z sis 1+ do sis ii.
+emisje hałasu w sektorze kolejowym
+projekt dyrektywy podlega procedurze regulacyjnej połączonej z kontrolą; jako że rada wyraziła zgodę, komisja może go przyjąć, o ile nie sprzeciwi się temu parlament europejski.
+nowe pułapy (nazywane krajowymi zobowiązaniami do redukcji emisji) na 2020 r. zostały uzgodnione w zmienionym protokole z göteborga i będą wdrażane do 2020 i 2030 r. w ramach nowej dyrektywy w sprawie krajowych poziomów emisji.
+jens christian grøndahl (dania)
+rada wzywa islandię do dalszego dokonywania postępów w dostosowywaniu się do dorobku prawnego ue i w jego wdrażaniu.
+obecność państwowego organu regulacyjnego często skłania organa samoregulacyjne do podejmowania bardziej skutecznych działań.
+nowe przepisy wejdą w życie do końca roku.
+zauważając z zainteresowaniem przyspieszenie prac w dziedzinie przemysłu kosmicznego, rynku sprzętu obronnego i niewojskowych badań nad bezpieczeństwem oraz w sektorze farmaceutycznym, a także zamiar zwrócenia dużej uwagi na branże: chemiczną, metalurgiczną oraz leśną;
+ip/12/1275 wspieranie dostosowań makroekonomicznych w ue - sprawozdanie przedkładane w ramach mechanizmu ostrzegania na 2013 r.
+w październiku 2011 r. oddano do użytku wizowy system informacyjny (vis) – wspólną bazę danych dotyczących wszystkich wniosków o wizę schengeńską oraz wszystkich wydanych wiz schengeńskich.
+również w programach relokacji zaproponowanych przez komisję pełne wdrożenie przepisów unijnych stanowi priorytet.
+utrzymanie strefy schengen bez granic wewnętrznych wymaga skutecznego zabezpieczenia i ochrony granic zewnętrznych.
+oświadczenie wysokiej przedstawiciel catherine ashton wydane w imieniu unii europejskiej z okazji międzynarodowego dnia walki z homofobią, 17 maja 2010 r.
+ekes uważa jednak, że nawet jeśli cele te zostaną osiągnięte, i tak potrzebne będą dalsze środki, zanim europa będzie dysponowała odpowiednią i całościowa strategią.
+rezultaty tylko pięciu skontrolowanych projektów były trwałe.
+z technicznego punktu widzenia przeniesienie to zostanie dokonane przez zastąpienie uprawnień dla drugiego okresu handlowego uprawnieniami dla trzeciego okresu.
+punktualność i niezawodność
+kwoty mleczne
+ustanowienie podstaw operacyjnych dla mechanizmu służącego redukcji emisji powodowanych wylesianiem obszarów tropikalnych i degradacją lasów (zob. pkt 12),
+rada europejska z zadowoleniem przyjmuje szczyt euromed, zorganizowany w 10. rocznicę podpisania deklaracji barcelońskiej, który odbył się w dniach 27 i 28 listopada w barcelonie, i na którym przyjęto wspólnie uzgodniony pięcioletni program prac oraz kodeks postępowania w zakresie zwalczania terroryzmu.
+będą one stanowić podstawę dla szeroko zakrojonej dyskusji na temat wartości i praw społecznych w aktualnym kontekście, w której uczestniczyć będą partnerzy społeczni, państwa członkowskie, społeczeństwo obywatelskie, środowisko akademickie i, co najważniejsze, obywatele ue w całej europie.
+zaostrzono wymagania proceduralne odnoszące się do publicznych konsultacji projektów, planów i programów.
+udane wystrzelenie i udaną walidację na orbicie satelity giove b, co pozwala zademonstrować podstawowe nowe technologie niezbędne do funkcjonowania systemu galileo;
+w tym względzie zasadnicze znaczenie ma poszanowanie integralności jednolitego rynku.
+rada przeprowadziła dogłębną wymianę poglądów dotyczącą sytuacji na rynku mleczarskim i dodatkowych krótkoterminowych środków, które mają zostać przyjęte w celu wsparcia tego sektora.
+czy zmieni się unijna polityka w zakresie pomocy humanitarnej lub jej finansowanie?
+zwiększenie stopy zatrudnienia wśród starszych pracowników jest jednym z celów strategicznych ue.
+istnieją poza tym przepisy szczególne dotyczące ochrony danych osobowych przetwarzanych w ramach współpracy policji i wymiaru sprawiedliwości w sprawach karnych ( decyzja ramowa 2008/977/wsisw ).
+dalsze doświadczenia praktyczne zostaną wykorzystane w długoterminowej strategii, w której rozstrzygnie się, w jakim stopniu koordynację zasobów państw członkowskich należy zastąpić przydziałem na stałe funkcjonariuszy straży granicznej i wyposażenia.
+stavros michael dyrektor generalny w ministerstwie finansów
+jednak dzisiejsza młodzież i jej dzieci mogą znaleźć się w gorszej sytuacji niż ich rodzice.
+w badaniu podkreślono również znaczenie wysokiej jakości środków przekazu: respondenci postrzegają media tradycyjne jako najbardziej wiarygodne źródło informacji (radio – 70 proc., telewizja – 66 proc., prasa drukowana – 63 proc.).
+w dzisiejszym sprawozdaniu zwraca się także uwagę na środki podejmowane przez państwa członkowskie w 2012 r. w celu ochrony i obrony budżetu ue, z uznaniem zauważając pozytywne efekty działań w niektórych obszarach.
+mamy obowiązek jasno powiedzieć migrantom, naszym partnerom spoza ue, a także naszym obywatelom, że jeżeli ktoś potrzebuje ochrony, udzielimy mu pomocy, a jeżeli nie – musi wrócić.
+ue z zadowoleniem przyjmuje fakt, że nowy parlament rozpocznie działalność przed końcem lutego.
+w bieżącym okresie programowania inwestycji, na lata 2007-2013, ten rodzaj współpracy jest bezpośrednio przewidziany w europejskim prawodawstwie.
+konsumenci potrzebują jednak przejrzystości i lepszych możliwości uzyskania jak najlepszej ceny lub usługi dostępnej na jednolitym rynku.
+te nowe formy okoliczności obciążających określono w celu przeciwdziałania nowym zagrożeniom stwarzanym przez cyberataki na dużą skalę; takie zagrożenia coraz częściej odnotowuje się w całej europie i mogą one przynieść poważne szkody interesom publicznym.
+ue i afryka zmierzają w stronę głębokiej przebudowy wzajemnych stosunków podczas drugiego szczytu ue-afryka w lizbonie
+pokazują one, jaki rodzaj pracy wykonują absolwenci, dostarczają informacji na temat tendencji na rynku pracy oraz mocnych i słabych stron programów edukacji.
+również przedsiębiorstwa mające oddziały w wielu państwach ue mogą być zmuszone do zawarcia odrębnych umów na różnych warunkach w każdym z państw, zamiast zawarcia jednej umowy dla całego przedsiębiorstwa na szczeblu ue.
+niestety tylko w niewielkiej części wykorzystywany jest potencjał dyrektywy usługowej.
+nowe przepisy unijne wzmocnią prawa konsumentów we wszystkich państwach ue, w szczególności podczas zakupów internetowych.
+w ue moc silników jest obecnie mierzona jako moc napędowa głównego silnika statku.
+w porównaniu z wiosną 2014 r. więcej obywateli odczuwa korzyści z kluczowych inicjatyw unijnych, takich jak zniesienie lub ograniczenie kontroli granicznych podczas podróży za granicę (53%, +1), tańsze rozmowy z telefonu komórkowego w innym kraju ue (48%, +14), wzmocnienie praw konsumentów przy zakupie towarów lub usług w innym kraju ue (37%, +13) czy wzmocnienie praw pasażerów linii lotniczych (34%, +12).
+pełny tekst proponowanej inicjatywy „mum dad & kids”
+frank-walter steinmeier wicekanclerz federalny i federalny minister spraw zagranicznych
+społeczeństwo europejskie powinno faktycznie odczuć pozytywny wpływ europejskiego paktu na rzecz wzrostu, konkurencyjności i zatrudnienia.
+sprawozdanie na podstawie art. 126 ust. 3 dotyczące belgii
+mniej przeszkód, większy wybór, uczciwsze ceny, lepsze usługi dla przedsiębiorstw, neutralność sieci oraz koniec roamingu: silniejsza gospodarka tworząca więcej miejsc pracy.
+trybunał zauważył, że zakwalifikowanie odsetek zapłaconych na rzecz spółki powiązanej jako wypłacone zyski może spowodować zwiększenie obciążenia podatkowego spółki będącej pożyczkobiorcą.
+nagrody przyznano również najlepszym zespołom międzynarodowym oraz w dziedzinie popularyzacji wiedzy naukowej.
+główne cele strategii:
+„niezależnie od obecnego kryzysu gospodarczego należy jak najszybciej wdrożyć proponowane w pakiecie działania”.
+język angielski nie stanowi sam w sobie wystarczającego bodźca dla gospodarki.
+na stanowisko członka:
+niemniej jednak ue uważa, że poczyniono pierwszy krok na drodze do ambitniejszego porozumienia i pozostaje w pełni zaangażowana w kontynuację negocjacji prowadzących do jak najszybszego zawarcia prawnie wiążącego porozumienia na okres po 2012 roku.
+w jaki sposób program investeu zapewnia równowagę geograficzną?
+ustanawia ona wspólne zasady dotyczące przedmiotu i momentu opodatkowania oraz dopuszczalnych zwolnień z podatku.
+chociaż na szczeblu międzynarodowym, unijnym i krajowym obowiązuje wiele środków legislacyjnych i nielegislacyjnych, nie są one dostatecznie skoncentrowane na zagrożeniach dla bezpieczeństwa związanych z niektórymi substancjami chemicznymi, bądź też nie obejmują swym zakresem całego terytorium ue.
+to nieustanne łajanie brukseli nie ma sensu, gdyż od czasu objęcia urzędu przez obecną komisję straciło uzasadnienie.
+w związku z podpisaniem i tymczasowym stosowaniem protokołu ustalającego uprawnienia do połowów i rekompensatę finansową przewidziane w umowie o partnerstwie w sektorze rybołówstwa między wspólnotą europejską a demokratyczną republiką wysp świętego tomasza i książęcej przedmiotowa decyzja określa podział uprawnień do połowów między poszczególne państwa członkowskie.
+ochrona środowiska: komisja przeznaczy 267 mln euro na nowe projekty związane z ochroną środowiska
+we wrześniu komisja europejska przedłożyła już szereg konkretnych propozycji, które mają zagwarantować przebieg wyborów do parlamentu europejskiego w sposób wolny, sprawiedliwy i bezpieczny.
+jej celem jest zagwarantowanie osobie podejrzanej lub oskarżonej o popełnienie przestępstwa, że otrzyma ona informacje o swoich podstawowych prawach procesowych oraz o treści oskarżenia, w tym otrzyma dostęp do materiałów w swojej sprawie.
+dopilnowała, aby w zbliżającym się okresie programowania pozyskiwane były właściwe i wiarygodne informacje;
+według ostrożnych szacunków międzynarodowej rady badań morza (ices) ponad 200 000 ptaków ginie co roku w wyniku zetknięcia z unijną flotą rybackiej na wodach ue i wodach nienależących do ue.
+ten nowy instrument ukierunkowany jest na projekty, które są prawdziwie innowacyjne, mają spore szanse na rynku i solidnie przygotowany plan wprowadzenia ich do obrotu”.
+rada europejska podkreśla, że tymczasowa rada narodowa, będąca przedstawicielem aspiracji narodu libijskiego, pełni kluczową rolę w tym procesie.
+jeśli chodzi o zarządzanie, duża większość delegacji była za łagodniejszym podejściem określonym w kompromisie prezydencji, w którym państwa członkowskie miałyby możliwość zorganizowania swoich struktur administracyjnych bez konieczności tworzenia nowych struktur.
+rada apeluje o przeprowadzenie wolnych i uczciwych wyborów prezydenckich, bez ingerencji zewnętrznej i w terminie określonym w konstytucji.
+wniosek komisji jest częścią pakietu niedawno zatwierdzonych środków, zapewniających jednolitą ochronę patentową na rynku wewnętrznym ( ip/11/470 ).
+by sprostać tym ograniczeniom (tzw. „e-barierom”) administracje publiczne powinny mieć możliwość wymiany potrzebnych informacji oraz współpracy pozwalającej na świadczenie usług publicznych ponad granicami państw.
+siedem programów, które zostaną podpisane dzisiaj to:
+z wyjątkiem dwóch obszarów wydatków – spraw gospodarczych i finansowych oraz wydatków administracyjnych – w płatnościach budżetowych nadal występuje istotny poziom błędu.
+w dniu 2 lutego 2017 r. komisja europejska rozpoczęła konsultacje na temat przyszłości wspólnej polityki rolnej (wpr), aby zbadać, w jaki sposób najlepiej uprościć i zmodernizować obecną politykę.
+komisja pomoże przedsiębiorstwom upewnić się, że dysponują wszystkimi stosownymi informacjami na temat zgodności produktów.
+obowiązków przedsiębiorstw kolejowych w stosunku do pasażerów w przypadku opóźnienia, utraty połączenia i odwołania odjazdu (rekompensata za spóźnienia ustalona jest jako 25% ceny bilety w przypadku opóźnienia wynoszącego od 60 do 119 minut i 50% ceny biletu w przypadku opóźnienia równego lub większego niż 120 minut);
+ministrowie przeprowadzili pierwszą wymianę poglądów na temat komunikatu komisji pt. „ globalne podejście do kwestii migracji i mobilności ”.
+dyrektywa w sprawie vat przewiduje zwolnienie dla usług finansowych.
+arkusz informacyjny: zarządzanie kryzysem uchodźczym – unijne wsparcie finansowe dla grecji
+jestem przekonany, że statut se może znacznie obniżyć koszty prowadzenia transgranicznej działalności gospodarczej.
+lizbona, portugalia: europejski rok równych szans dla wszystkich 2007 kończy się dziś wielką uroczystością mającą uczcić dotychczasowe osiągnięcia i przyjrzeć się wyzwaniom, które ciągle przed nami stoją.
+po pierwsze, gdzie jesteśmy.
+ramy te określają sposób, w jaki ue prowadzi dialog polityczny i rozwija współpracę operacyjną z państwami trzecimi, w oparciu o jasno zdefiniowane priorytety odzwierciedlające cele strategiczne ue, będące częścią ogólnej unijnej polityki zagranicznej, w tym współpracy na rzecz rozwoju.
+zwraca się do rady o rozpoczęcie pierwszej analizy propozycji dotyczących przyszłego „partnerstwa wschodniego” unii europejskiej, które komisja ma zamiar przedstawić najwcześniej w listopadzie.
+wniosek nie powinien zmieniać jednolitego poziomu bezpieczeństwa zapewnionego przez ogólnounijną ocenę.
+komisja uważnie obserwuje wykonywanie tych przepisów przez państwa członkowskie i wszczęła już postępowania o naruszenie przeciwko państwom członkowskim, które wydały homologacje typu dla grupy volkswagen w ue a nie zastosowały swoich przepisów krajowych w zakresie kar, mimo że ww. przedsiębiorstwo posługiwało się nielegalnym oprogramowaniem ograniczającym skuteczność działania.
+trybunał nie wykluczył, że oba te przepisy, rozpatrywane odrębnie, mogą równie dobrze działać na korzyść, jak i na niekorzyść wszystkich akcjonariuszy spółki.
+rada nie sprzeciwiła się przyjęciu decyzji komisji aktualizującej dozwolone przekroczenie poziomu prężności par w benzynie zawierającej bioetanol określone w załączniku iii do dyrektywy 98/70.
+tekst określa prawa i obowiązki organów badających zdarzenia lotnicze i zapewnia ochronę informacji szczególnie chronionych i procedur dotyczących działań w następstwie zaleceń z zakresu bezpieczeństwa wydanych w wyniku badań.
+na poświęconej handlowi konferencji ministerialnej euromedu w lizbonie w październiku 2007 roku ministrowie zgodzili się na rozpoczęcie prac redakcyjnych nad jednolitą konwencją regionalną w sprawie preferencyjnych reguł pochodzenia dla obszaru paneurośródziemnomorskiego celem zastąpienia obecnego systemu protokołów w sprawie reguł pochodzenia.
+niewłaściwe stosowanie procedur udzielania zamówień publicznych, które mają zapewniać najlepsze wykorzystanie środków pieniężnych.
+jednak aby mobilność stała się faktem, organy publiczne, przedsiębiorstwa, związki zawodowe i uniwersytety muszą ze sobą współpracować.” powiedział vladimír špidla, unijny komisarz ds. zatrudnienia, spraw społecznych i równości szans.
+joe costello minister ds. rozwoju
+rada zapoznała się ze stanem prac nad projektem rozporządzenia ustanawiającego instrument „łącząc europę” – przyszłego instrumentu finansowania sieci transeuropejskich (ten) w obszarach transportu, energii i telekomunikacji (sprawozdanie z postępu prac: 17107/12 + cor 1 rev 1 ).
+mam nadzieję, że teraz uda się wdrożyć te rozwiązania w ścisłej współpracy z rządami państw członkowskich i parlamentem europejskim.”
+jak powiedziałem, wierzę głęboko, że wiele z młodych państw członkowskich – wraz z polską – posiada cenne doświadczenia i wyciągnęło z nich twarde nauki, które powinny z nami podzielić.
+nagrody lorenzo natali to ogólnoświatowy konkurs ustanowiony w 1992 r. i obejmujący wszystkie gatunki medialne.
+przyjęcie przez ekes wymienionej opinii zbiega się w czasie z planowanym przyjęciem przez parlament europejski w dniu 16 grudnia rezolucji w sprawie wniosku komisji, który będzie również omawiany na posiedzeniu rady ds.
+kwota ta powinna ponadto zostać przekazana do budżetu włoch, aby włoscy podatnicy nie byli stratni.
+wyzwanie globalizacji nie ogranicza się jedynie do gospodarki.
+kto na tym skorzysta?
+nowe przepisy będą miały zastosowanie do dóbr kultury, które są najbardziej zagrożone.
+jednolity rynek cyfrowy może umożliwić im szerszy dostęp, pomóc przedsiębiorstwom wprowadzać innowacje i rozwijać się, a także zwiększyć zaufanie do usług internetowych, takich jak e-administracja czy bankowość elektroniczna.
+załącznik 2: wsparcie finansowe dla państw członkowskich ue
+wezwała też komisję, jako negocjatora ze strony unii, oraz wielką brytanię do zakończenia prac we wszystkich kwestiach związanych z wystąpieniem, również tych, które nie zostały uwzględnione w pierwszym etapie, a także do ugruntowania osiągniętych już wyników i rozpoczęcia opracowywania odpowiednich części umowy o wystąpieniu.
+w jaki sposób komisja zapewnia egzekwowanie powyższych przepisów?
+główne ustalenia i wnioski trybunału są następujące:
+oprócz powierzenia tych czynności misjom dyplomatycznym i urzędom konsularnym dopuszcza się również tworzenie wspólnych placówek, wspólnych ośrodków przyjmowania wniosków, wzajemnie reprezentowanie się w ograniczonym zakresie, pracę konsuli honorowych oraz zlecanie niektórych czynności usługodawcy zewnętrznemu.
+kilku ministrów podkreśliło, że duże znaczenie ma zaangażowanie partnerów społecznych w dyskusje o przyszłości strategii.
+przed wizytą komisarz powiedziała: „
+przydatne linki:
+chciałabym jednak podkreślić, że oczekuję, że z wyjątkiem przypadków, których tymczasowo dotyczą nakazy sądowe, niemcy dokonają postępów w sprawie publikacji.”
+unijna komisarz ds. handlu cecilia malmström ogłosiła dzisiaj, że ue ustanowi międzynarodowy sojusz na rzecz zniesienia handlu narzędziami tortur ( alliance for torture-free trade).
+komisja w dalszym ciągu pragnie ściśle współpracować z parlamentem europejskim i radą nad kierunkiem dalszych działań.
+te właśnie kwestie będą przedmiotem trzeciego szczytu ue-afryka w trypolisie, którego motywem przewodnim będą inwestycje, wzrost gospodarczy i tworzenie miejsc pracy.
+w pozostałych kategoriach, obejmujących zazwyczaj wysokoprzetworzone produkty spożywcze – takie jak słodycze, przekąski, sosy i napoje z dodatkami smakowymi lub środkami aromatyzującymi – dopuszcza się stosowanie wielu dodatków.
+mogą one polegać na opóźnieniu terminów wypłat, zmniejszeniu przyszłych płatności lub na zobowiązaniu do zwrotu środków finansowych.
+decyzja prüm , w której ustanowiono system automatycznej wymiany profili dna, odcisków palców i danych rejestracyjnych pojazdów pomiędzy organami ścigania z państw członkowskich na potrzeby prowadzenia dochodzeń w sprawach przestępstw.
+wsparcie finansowe na działania łagodzące dla krajów rozwijających się udzielane w ramach mechanizmów rynku emisji i pochodzące ze środków publicznych powinno zostać w pełni uznane i z upływem czasu zwiększane w zależności od poziomu ambicji porozumienia kopenhaskiego, zamierzonych celów krajów rozwijających się wyrażonych w przyjętych przez nie strategiach rozwoju opartego na niskich emisjach, a także od tego, czy rzeczywiście doprowadza się do znacznej i z czasem coraz większej redukcji emisji.
+strategie i programy w dziedzinie polityki spójności na lata 2007–2013
+czarna lista linii lotniczych: nowe działania komisji europejskiej
+trybunał w wyroku przypomniał najpierw, że obowiązek objęcia ubezpieczeniem od odpowiedzialności cywilnej szkód poniesionych w związku z ruchem pojazdów mechanicznych jest rzeczą odrębną od zakresu odszkodowań wypłacanych z tytułu odpowiedzialności cywilnej ubezpieczonego.
+jeśli chodzi o realizację oświadczenia ue–turcja, władze greckie muszą zwiększyć wysiłki i zapewnić odpowiednie zasoby, aby możliwa była skuteczna realizacja powrotów do turcji i wdrożenie tego ważnego elementu oświadczenia.
+uczestnictwo w programie będzie dobrowolne dla państw członkowskich dysponujących również pewną swobodą w wyborze produktów, które pragną dostarczać.
+„cieszy mnie zainteresowanie telewidzów europejskimi produkcjami.
+w badaniu podkreślono także znaczenie kampanii informacyjnych i promocyjnych ue ułatwiających unijnym eksporterom dostęp do nowych rynków i dynamiczny rozwój działalności na rynkach, gdzie są już obecni.
+tymczasowe środki związane z kryzysem na rzecz wsparcia poszczególnych sektorów:
+na wypadek sporów operator musi wprowadzić odpowiednie procedury umożliwiające złożenie skargi.
+rada podkreśla, że zmniejszenie obciążeń administracyjnych w tym momencie przyczyniłoby się do wsparcia środowisk biznesowych oraz wzrostu gospodarczego i zatrudnienia, w sytuacji gdy finanse publiczne są szczególnie napięte.
+“w kantabrii, tej zielonej, historycznej krainie, jeśli coś jest w nadmiarze, to tylko możliwości, jakie przed nami rozpościera”.
+w ramach konsultacji gromadzone będą informacje dotyczące trzech głównych zagadnień:
+jak dotąd komisji dostarczono 26 kwartalnych sprawozdań.
+liczba państw członkowskich „na dobrej drodze”
+wśród uczestników inauguracji znajdują się ministrowie oraz urzędnicy wysokiego szczebla z 27 państw członkowskich ue, jak i przedstawiciele 21 państw spoza ue (albanii, australii, chorwacji, czarnogóry, filipin, ghany, gruzji, japonii, kambodży, mołdawii, nigerii, norwegii, nowej zelandii, republiki korei, serbii, stanów zjednoczonych ameryki, szwajcarii, tajlandii, turcji, ukrainy i wietnamu).
+treść art. 229a (przyznanie ets właściwości do rozstrzygania sporów dotyczących europejskich tytułów prawnych w dziedzinie własności intelektualnej) pozostanie niezmieniona.
+9) zrównoważone wykorzystanie gruntów i rozwiązania oparte na przyrodzie; 10) mobilność w miastach; 11) transformacja cyfrowa; 12) innowacyjne i odpowiedzialne zamówienia publiczne.
+chiny (wraz z hongkongiem)
+podczas sesji popołudniowej, której moderatorami byli przewodniczący europejskiego forum obywatelskiego jean-marc roirant i przewodniczący platformy społecznej europejskich organizacji pozarządowych conny reuter , podjęto debatę z przedstawicielami większości grup politycznych w parlamencie europejskim.
+jest to „duży projekt”, którego łączna wartość inwestycji (w tym vat) wynosi powyżej 50 mln eur i w związku z tym przyjmowany jest w drodze specjalnej decyzji komisji europejskiej, natomiast projekty o niższej wartości są zatwierdzane na szczeblu krajowym lub regionalnym.
+zamówienia udzielane przez podmiot publiczny na rzecz odrębnego od niego podmiotu, gdy jednocześnie pierwszy z nich sprawuje nad drugim kontrolę analogiczną do kontroli sprawowanej nad własnymi służbami, a drugi podmiot wykonuje zasadniczą część swej działalności wraz z podmiotem lub podmiotami, które są jego udziałowcami 3 .
+równocześnie powinniśmy jasno powiedzieć, że stopniowa liberalizacja handlu między krajami rozwijającymi się – handlu na linii południe-południe – jest koniecznym czynnikiem ich rozwoju gospodarczego.
+w sprawozdaniu opublikowanym w 2018 r. przeanalizowano, w jaki sposób obecne i przyszłe emerytury przyczyniają się do zapobiegania ubóstwu osób starszych i utrzymania dochodów kobiet i mężczyzn w całym okresie ich emerytury.
+w takim przypadku z pomocą może przyjść europejskie centrum konsumenckie.
+zdecydowane zaostrzenie przepisów zapobiegających praniu pieniędzy – pranie pieniędzy jest przestępstwem finansowym, związanym z działalnością terrorystyczną, uchylaniem się od płacenia podatków lub fałszowaniem księgowości.
+środkami własnymi ue są dochody ue.
+ambasada niderlandów w niemczech , berlin, projekt: oma / rem koolhaas, ellen van loon
+z zakresu dyrektywy wyłączono następujące dziedziny: usługi finansowe, telekomunikacja, usługi transportowe, usługi portowe, opieka zdrowotna, usługi socjalne związane z budownictwem socjalnym, opieka nad dziećmi i pomoc dla rodzin oraz osób potrzebujących pomocy, działalność związana z wykonywaniem władzy oficjalnej, agencje pracy czasowej, prywatne usługi ochroniarskie, usługi związane z hazardem i usługi audiowizualne.
+organ powołujący sekretariatu generalnego rady
+przedstawiciel białorusi
+program w zmienionej formie powinien zacząć działać w 2010 r.
+planowane działania
+marek madiaricz minister kultury
+rada zapoznała się z informacjami delegacji cypryjskiej o jej programie prac na drugą połowę 2012 roku w dziedzinie polityki młodzieżowej.
+aby możliwe było przejście od współzawodnictwa do współpracy między instytucjami unii oraz między instytucjami europejskimi i państwami członkowskimi, należy wzmocnić znaczenie partii politycznych na poziomie unii: dzięki temu można będzie połączyć interesy polityczne, usystematyzować priorytety polityki i zapewnić jej spójność.
+drugie ćwiczenie wojskowe ue odbyło się w dniach 7–15 czerwca 2007 r. i skupiono się w nim głównie na interakcji między centrum operacji ue w brukseli a kwaterą główną sił ue w enköping, zapewnioną przez szwecję.
+com (2002) 661 wersja ostateczna, komunikat komisji do parlamentu europejskiego i rady w sprawie statystyk w strefie euro „w kierunku usprawnionych metod w zakresie statystyk i wskaźników dla strefy euro”.
+instrument ten pozwoli na pobudzenie inwestycji w afryce i w krajach sąsiadujących z ue, w szczególności w celu wsparcia rozwoju infrastruktury społecznej i gospodarczej oraz mśp poprzez usuwanie przeszkód dla inwestycji prywatnych.
+ostatnie posiedzenia grup g4 i g6 miały miejsce w new delhi w dniach 11 i 12 kwietnia.
+jako pierwszy krok w obronie międzynarodowego układu o nierozprzestrzenianiu broni jądrowej rada zaostrzyła środki ograniczające ue skierowane przeciwko krld.
+w konkursie przyznano również nagrodę za współpracę międzynarodową dla najlepszego projektu przygotowanego przez zespół z zaproszonych krajów, które podpisały umowy o współpracy naukowej i technologicznej z ue: usa, kanady, chin, nowej zelandii, korei południowej i szwajcarii.
+eric besson minister przemysłu, energetyki i gospodarki cyfrowej
+zarówno komisarz hogan, jak i komisarz andriukaitis, pracują nad ustaleniem, jakie dodatkowe środki można skierować na zwalczanie tej choroby.
+podniesieniu standardów oceny w związku z konkretnymi problemami wynikającymi z oceny aktywów niepłynnych;
+rada wyraża głębokie zaniepokojenie faktem, że w krajach, których prawodawstwo zawiera przepisy dotyczące obrazy religii, takie prawodawstwo często jest wykorzystywane do gnębienia mniejszości religijnych oraz do ograniczania wolności wyrażania opinii oraz wolności religii lub przekonań.
+z budżetem wynoszącym prawie 80 mld eur w okresie siedmiu lat program „horyzont 2020” jest największym w historii unijnym programem na rzecz badań i innowacji, w którym przewidziano również rekordowo wysokie środki finansowe dla mśp.
+strach przed zmianami stanowi chyba najbardziej charakterystyczną cechę współczesnej polityki europejskiej.
+wszystkie państwa członkowskie ue oraz islandia, norwegia i szwajcaria będą uczestniczyły albo jako aktywni uczestnicy, albo jako obserwatorzy.
+staże są bardzo przydatne dla młodych ludzi: pozwalają im wejść na rynek pracy, a pracodawcy cenią sobie kandydatów, którzy zdobyli pierwsze doświadczenia zawodowe w ramach stażu.
+są to prawdziwe obawy i problemy, którymi należy się zająć.
+ivan korčok stały przedstawiciel
+komisarz ue ds. konsumentów, meglena kunewa, nakreśliła podczas dzisiejszego przemówienia w londynie pięć priorytetowych obszarów działań w zakresie polityki konsumenckiej w czasach coraz większego zinformatyzowania.
+po rozpadzie czechosłowacji 1 stycznia 1993 r. oraz powstaniu republiki czeskiej i słowacji grupę wyszehradzką tworzą 4 państwa.
+promowanie zgodnego z zasadami ochrony środowiska udostępniania własnych zasobów paliw kopalnych ue i ich efektywne i zrównoważone użytkowanie przez zastosowanie zaawansowanych technologii;
+mobilność pracowników w ramach programu erasmus
+„program operacyjny współpracy transgranicznej rzeczpospolita polska (województwo lubuskie) – niemcy (brandenburgia)” – program w ramach celu „europejska współpraca terytorialna” współfinansowany przez europejski fundusz rozwoju regionalnego (efrr)
+dokument pokazuje, że starania komisji na rzecz stopniowego wyeliminowania przełowienia zaczynają przynosić owoce.
+bez szczegółowej i bardziej zharmonizowanej metody pozwalającej na identyfikowanie problemów i ocenę ryzyka istnieje niebezpieczeństwo, że mechanizmy takie będą formą wykorzystywania środków publicznych do finansowania kosztownych zbędnych zdolności, których skutkiem będzie wzrost cen dla konsumentów i przedsiębiorstw w ue.
+ogólnych zasad dotyczących wykonania przepisów.
+rada przyjęła decyzję o zawarciu porozumień w formie wymiany listów między ue a brazylią i między ue a tajlandią zgodnie z art. xxviii układu ogólnego w sprawie taryf celnych i handlu (gatt z 1994 r.) w sprawie zmiany koncesji w odniesieniu do przetworzonego mięsa drobiowego (7883/12 ; 7884/12 ; 7885/12 ).
+arkusz informacyjny – ramy partnerstwa w dziedzinie migracji
+prawa konsumentów
+rada europejska oczekuje negocjacji z parlamentem europejskim w celu szybkiego przyjęcia tego pakietu, tak by nowy system mógł uzyskać gotowość operacyjną w 2010 roku.
+podczas obiadu rada, zastanawiając się nad kierunkiem rozwoju wydarzeń w przyszłości, omówiła wynik wyborów prezydenckich na ukrainie i przyszłe stosunki ue z tym państwem.
+jeśli chodzi o afrykański pomór świń, usa zaakceptowały niedawno unijne decyzje dotyczące regionalizacji, co oznacza, że zamiast poszczególnych państw lub regionów, w porozumieniu zostaną wymienione obszary ue objęte ograniczeniami decyzją ue lub państw członkowskich.
+ponieważ przepisy te nie zostały prawidłowo wprowadzone do prawa czeskiego, komisja europejska wysłała w kwietniu 2016 r. wezwanie do usunięcia uchybienia.
+w czerwcu 2015 r. komisja przedstawiła także szereg inicjatyw mających na celu zwalczanie uchylania się od opodatkowania, zapewnienie zrównoważonych dochodów podatkowych oraz wzmocnienie jednolitego rynku dla przedsiębiorstw.
+społeczna gospodarka rynkowa wyklucza sytuacje, w których w trakcie kryzysu właściciele statków i spekulanci stają się coraz bogatsi, podczas gdy emerytom brakuje środków na życie”.
+wreszcie, aby lepiej ukierunkować rozważania i debaty na ten temat oraz aby dotrzeć do jak największej liczby instytucji, komitet wnioskuje, by komisja opublikowała zieloną księgę w tym zakresie.
+jeżeli chodzi o pierwszy aspekt neutralności podatku, trybunał przypomniał, że naruszenie prawa unii ma miejsce wówczas, gdy kwota podatku obciążającego pojazd używany pochodzący z przywozu przekracza rezydualną wartość podatku, stanowiącą część wartości pojazdów używanych już zarejestrowanych na terytorium kraju.
+na posiedzeniu ministerialnymi do sojuszu na rzecz zwalczania handlu narzędziami tortur przystąpiło pięć kolejnych państw: australia, republika zielonego przylądka, nowa zelandia, palau i vanuatu.
+kolejnym, istotnym krokiem we właściwym kierunku jest wprowadzenie w życie naszego kodeksu.
+wody grenlandii obszarów nafo 0 oraz 1; wody grenlandii obszarów v oraz xiv
+faktycznie to rada dysponowała prawem inicjatywy, ale prawo decydowania przysługiwało w głównej mierze państwom członkowskim.
+wzywam państwa członkowskie, by podczas nadzwyczajnego posiedzenia ministrów spraw wewnętrznych, które odbędzie się 14 września br., przyjęły nasze propozycje w sprawie nadzwyczajnej relokacji 160 tys. uchodźców.
+przedsiębiorstwa cukrownicze, które nie mogą produkować na poziomie około 400 eur/t, powinny skorzystać z pomocy restrukturyzacyjnej w tym roku, kiedy wynosi ona nadal 730 eur/t.
+jeżeli podejście oparte na samoregulacji nie przyniesie skutków, komisja może jednak zaproponować dalsze działania, w tym działania regulacyjne.
+rynek takiej paszy jest w ue całkiem pokaźny: ponad 60 proc. zapotrzebowania na białko roślinne dla bydła w ue pokrywają soja i śruta sojowa importowane z państw, w których rozpowszechnione są uprawy gmo.
+środki przekazane przez biuro europeaid za pośrednictwem organizacji narodów zjednoczonych są znaczne i oscylują w granicach 4000 mln euro za pięcioletni okres 2005-2009.
+rozporządzenie opiera się na dyrektywie w sprawie adr w sporach konsumenckich.
+w rumunii umożliwiono nauczycielom z obszarów wiejskich podyplomowe studia na odległość w zakresie języka francuskiego i angielskiego.
+rada omówiła wydarzenia w mali.
+ceta zapewnia ochronę inwestycji, a jednocześnie przewiduje prawo rządów do wprowadzania regulacji w interesie publicznym – również takich, które mogą mieć wpływ na inwestycje zagraniczne.
+zastosowanie zespołów składających się z niezależnych ekspertów wysokiego szczebla, wyznaczanych przez komisję do uczestnictwa w głównych procesach oceny, dobrze odpowiadało specyfice wspólnotowej.
+chciałbym przedstawić państwu postępy, jakie poczyniliśmy podczas naszych dzisiejszych obrad.
+większość tych działań już się rozpoczęła zwłaszcza w ramach europejskiego funduszu rybackiego przyjętego w 2006 r. i siódmego programu ramowego w dziedzinie badań naukowych, w ramach którego przygotowywane są obecnie zaproszenia do składania ofert i projekty.
+roberto castelli sekretarz stanu ds. infrastruktury i transportu
+jednak postęp w poprawie wskaźników umiejętności czytania, ograniczenia przedwczesnego kończenia nauki szkolnej oraz poprawy osiąganego poziomu wykształcenia jest jak na razie rozczarowujący.
+zasady regulujące prawo dostępu zostały określone w rozporządzeniu (we) nr 1049/2001, stosowanym od 3 grudnia 2001 r.
+rada przyjęła do wiadomości przygotowania do 20. wspólnego posiedzenia ministerialnego ue – rada współpracy państw zatoki perskiej, które odbędzie się w luksemburgu w dniu 14 czerwca 2010 r.
+nie są wprawdzie doskonałe, niemniej stanowią pewne ramy podejmowania decyzji‟.
+komisja wzywa polskę do zagwarantowania dostępu do wymiaru sprawiedliwości
+w tym celu musimy przeanalizować, w jaki sposób można by zwiększyć zasoby i rozwinąć bazę kapitałową ebi, aby mógł on zapewniać kapitał dłużny realnej gospodarce.
+podkreśla, że konieczne jest unikanie wszelkich form protekcjonizmu oraz manipulowania kursami walutowymi w celu uzyskania krótkoterminowej przewagi konkurencyjnej.
+dodatkowa kwota byłaby stopniowo wprowadzana począwszy od 2009 r., a w 2013 r. osiągnęłaby pełen poziom 3,4 mln eur.
+jednak skutkiem wzrostu przepływów migracyjnych wzdłuż szlaku środkowośródziemnomorskiego, przez który do ue w 2016 r. przybyło 181 000 migrantów i uchodźców, była również rekordowa liczba śmiertelnych wypadków na morzu.
+ta operacja zapewniała niderlandom minimalną wewnętrzną stopę zwrotu w wysokości 15 %.
+komisja wyraziła obawy dotyczące naruszenia zasady swobodnego przepływu towarów (art. 34 traktatu o funkcjonowaniu unii europejskiej, tfue).
+odpowiedzi przesłane przez uczestników konsultacji
+komisja jest przekonana, że większość proponowanych inicjatyw będzie przyjmowana.
+rada zatwierdziła „zobowiązania przyjęte przez ministrów na rzecz rozwoju zdolności cywilnych”.
+do wyzwań tych należy zaliczyć potrzebę poprawy nauczania myślenia przekrojowego oraz skutecznej komunikacji, a także problem braku strategii zapewniających bardziej aktywną rolę uczniów jako „współtwórców” procesu kształcenia.
+w ramach zamówień publicznych państwa członkowskie powinny starać się zamawiać jedynie produkty opatrzone etykietą najwyższej klasy energetycznej.
+c) dokonać przeglądu wyników prac grup ekspertów i omówić te wyniki,
+szybkie rozpoczęcie realizacji konkretnych projektów w ramach unii dla śródziemnomorza może w istotny sposób przyczynić się do osiągnięcia tego celu.
+w skrócie inicjatywa polega na tym, by rybacy nie poławiali tego, czego nie można sprzedać.
+aby lepiej zarządzać kryzysem uchodźczym, komisja przyjęła dziś drugie zalecenie w sprawie konkretnych środków, jakie grecja powinna podjąć w celu pełnego wdrożenia norm w dziedzinie azylu.
+ponadto w chorwacji nie przeprowadzono konsultacji publicznych w sprawie propozycji planu działania dla obszarów miejskich w splicie i rijece, 91 głównych dróg i 6 głównych linii kolejowych.
+w 1997 r. na posiedzeniu rady europejskiej w amsterdamie państwa członkowskie powierzyły ue zadanie zwalczania dyskryminacji.
+minister stanu, minister finansów portugalii
+w odpowiedzi na wezwanie do usunięcia uchybienia wystosowane we wrześniu ubiegłego roku (ip/08/1343) władze łotewskie nie odniosły się do kwestii wskazanych przez komisję, w związku z czym komisja rozpoczęła drugi etap postępowania w sprawie naruszenia przepisów.
+rachunki sisnet-u za rok 2006 22
+pełny program imprezy można odnaleźć pod następującym adresem internetowym:
+demokracja, prawa człowieka, bezpieczeństwo, sprawowanie rządów i trwały rozwój są ze sobą powiązane.
+w niedawno przyjętym komunikacie komisji na temat przyszłości rolnictwa i produkcji żywności[4] uznano konieczność wspierania celów dyrektywy w sprawie zrównoważonego stosowania pestycydów.
+komisja przypomniała, że marcowa rada europejska zwróciła się do niej o monitorowanie – z zastosowaniem wspólnego podejścia – spójności celów krajowych z europejskim wymiernym celem, jakim jest zwiększenie efektywności energetycznej o 20%.
+ponadto mariann fischer boel wskazała, że komisja ma zamiar zaproponować władzy budżetowej, aby dla producentów mleka przeznaczono dodatkowe środki finansowe (280 milionów eur), oraz przedstawiła w zarysie środki, które można rozważyć w ramach zmienionej „klauzuli w przypadku zakłóceń”.
+opracowanie jednego rozporządzenia łączącego w sobie oba obowiązujące rozporządzenia dotyczące napojów
+i to samo robią dziś demokratyczni przywódcy europy: zmagają się z globalizacją, nowymi technologiami, rosnącymi mocarstwami na innych kontynentach...
+195 krajów przyjęło nowe, powszechne, prawnie wiążące porozumienie międzynarodowe w dziedzinie klimatu.
+brzmienie nowej dyrektywy w sprawie egzekwowania przepisów i rozporządzenia monti ii potwierdza, że nie jest to prawdą.
+tę metodę łatwo wprowadzić, umożliwi ona gromadzenie dokładnych i wiarygodnych danych dotyczących obrażeń, jednakże nie uwzględnia dodatkowych informacji na temat przyczyn i charakteru wypadków, które można znaleźć w raportach policyjnych.
+po wczorajszej wizycie w szampanii-ardenach (ip/08/1319), komisarz udała się dziś do lotaryngii na zaproszenie prefekta regionu bernarda niquet.
+komisja wzywa do szybkiego przyjęcia nowej polityki w sprawie energii i klimatu jako najlepszej odpowiedzi na rosnące ceny ropy naftowej
+komisja europejska regularnie prowadzi dialogi obywatelskie z członkami komisji i parlamentu europejskiego, rządami krajowymi, władzami lokalnymi i regionalnymi oraz przedstawicielami społeczeństwa obywatelskiego.
+sprawozdanie przedstawia także wiele konkretnych kwestii podniesionych przez państwa członkowskie i dotyczących każdego z wniosków.
+opiera się on na analizie skarg rozpatrywanych przez komisję i jej służby wspomagające (solvit, twoja europa - porady, europejska sieć przedsiębiorczości, europejskie centrum konsumenckie, punkt kontaktowy europe direct , eures - europejskie służby zatrudnienia) w powiązaniu z wynikami najnowszego badania eurobarometru i badań prowadzonych przez grupy dyskusyjne 1 .
+zgodnie z porozumieniem, na niektórych opakowaniach bat umieści informację wskazującą docelowy rynek sprzedaży detalicznej oraz oznaczy opakowania zbiorcze 1 etykietą zawierającą identyfikacyjny kod kreskowy widoczny podczas skanowania maszynowego, a także wdroży inne procedury zmierzające do lepszego identyfikowania i śledzenia swoich produktów.
+tworzą one zobowiązania wypełniane później poprzez odpowiednie płatności na podstawie uzgodnionych zasad i faktycznej realizacji programów.
+zadanie do wykonania mają w tym względzie wszystkie światowe podmioty.
+w tym tygodniu czeka mnie niesłychana przyjemność powitania 10 nowych kolegów w komisji europejskiej.
+komisja uważa, że polska powinna udostępnić stronom trzecim gazociąg jamalski oraz zezwolić na przepływ gazu w obu kierunkach, przyzwalając na transport gazu z niemiec do polski.
+ue i indie mają podobne poglądy na temat roli badań naukowych i innowacji: wspieranie rozwoju gospodarczego, tworzenie miejsc pracy i wzmacnianie zdolności w zakresie podejmowania globalnych wyzwań społecznych, w szczególności takich jak ict, ochrona zdrowia, zmiana klimatu i energia, bezpieczeństwo żywnościowe czy inteligentne miasta.
+podkreślają jednak także znaczenie elastyczności w stosowaniu przez państwa członkowskie przynoszących największe oszczędności środków, spójności z aktualnymi przepisami i poszanowania zasady pomocniczości.
+w okresie przejściowym, trwającym do 2014 r., komisja nie może wszczynać postępowań sądowych, aby zapewnić wdrażanie przepisów przez państwa członkowskie w tym obszarze, choć takie prawo przysługuje jej w innych obszarach polityki.
+mam nadzieję, że podczas końcowych prac nad krajowymi strategicznymi ramami odniesienia oraz programami operacyjnymi praktyczne wskazówki zawarte w tym dokumencie, a także przedstawione w nim przykłady dobrych praktyk, staną się inspiracją dla wielu”, powiedziała komisarz.
+uważam, że wniosek dostarcza wszystkim zainteresowanym stronom narzędzi, jakich potrzebują oni do wykonywania swojej pracy.”
+komisja uważnie śledzi proces transpozycji dyrektyw, zarówno co do litery, jak i co do ducha.
+zgodnie z warunkami konkursu wyniki zostaną ogłoszone publicznie.
+współpraca dotycząca kontroli rybołówstwa w drodze porozumień dwustronnych pomiędzy norwegią i poszczególnymi państwami członkowskimi jest bardzo korzystna dla wszystkich zainteresowanych stron.
+regiony sąsiadujące to kraje będące adresatami europejskiej polityki sąsiedztwa i polityki rozszerzenia, nieutrzymujące jeszcze specjalnych stosunków z ue.
+ułaskawienie ich przez prezydenta stanowi pozytywny krok na drodze do wypełnienia przez azerbejdżan międzynarodowych i europejskich zobowiązań w zakresie wolności prasy.
+nie ma ograniczeń w odniesieniu do pomocy nawet jeśli dochodzi do poważnych zakłóceń, na które przewoźnik lotniczy nie ma wpływu.
+więcej informacji na ten temat można znaleźć w komunikacie prasowym szczegółowo omawiającym tę kwestię.
+ponadto w dalszym ciągu w światowych prognozach wzrostu gospodarczego występuje zagrożenie niekontrolowanej korekty międzynarodowej nierównowagi płatniczej, szczególnie, jeśli w sposób znaczący osłabnie rynek nieruchomości w usa.
+celem nowego programu jest podwojenie liczby uczniów, studentów, nauczycieli, stażystów, młodych pracowników i innych osób otrzymujących dotacje na uczestniczenie w działaniach służących zdobyciu nowych umiejętności w ramach studiów, szkolenia lub wolontariatu za granicą, tak aby w latach 20114-2020 objął on 5 mln osób.
+zmiany te, w połączeniu z faktem, że ramy wto również są obecnie zmieniane, skłoniły komisję do ponownego zbadania instrumentów antydumpingowych i antysubsydyjnych, aby utrzymać skuteczność ue w rozwiązywaniu problemu nieuczciwych praktyk handlowych.
+ue jest zaangażowana w inwestowanie w tym obszarze — na siedmioletni program (2014-2020) przeznaczono budżet w wysokości 14,7 mld euro, co stanowi 40-proc. wzrost w porównaniu z poziomem wydatków w poprzednich okresach.
+w swoim komunikacie „unia europejska i ameryka łacińska: partnerzy na arenie międzynarodowej” komisja dokonuje oceny stanu stosunków łączących te dwa regiony i określa cele i założenia, jakie należy realizować w nadchodzących latach.
+przekazywanie wspomnianych informacji ma mieć miejsce za pośrednictwem krajowych punktów kontaktowych wyznaczonych odpowiednio przez przedsiębiorstwa z branży it i państwa członkowskie.
+jest to aspekt, na który najbardziej nalegałem.
+więcej informacji dotyczących europejskiego systemu handlu uprawnieniami do emisji na stronie:
+rada stwierdziła, że uznawanie powinno być automatycznie, a egzekwowanie powinno odbywać się bez przedstawiania deklaracji.
+zielona księga na rzecz adekwatnych, stabilnych i bezpiecznych systemów emerytalnych w europie
+bardziej wspierane będzie skuteczne wdrażanie obowiązku wyładunku, który w pełni wejdzie w życie w przyszłym roku oraz zobowiąże rybaków do wyładowywania wszystkich połowów, tak aby położyć kres niegospodarnej praktyce wyrzucania niechcianych ryb z powrotem do morza.
+jednocześnie ponownie potwierdza, że od dawna sprzeciwia się karze śmierci we wszelkich okolicznościach, i przypomina, że wszelkie pomyłki sądowe przy stosowaniu kary śmierci oznaczają nieodwołalną i nieodwracalną utratę życia ludzkiego.
+wprowadzenie euro w estonii
+rada przyjęła decyzję ustanawiającą nową cywilną misję wpbio w celu zwiększenia bezpieczeństwa na lotnisku międzynarodowym w dżubie.
+szczyt w los cabos odbywa się w krytycznym momencie dla gospodarki światowej.
+anthony smith dyrektor
+uproszczenie procedur, zarówno dla podmiotów, jak i służb publicznych.
+jeżeli chodzi o belgię, komisja zadała też pytania dotyczące przejrzystości belgijskich ram prawnych dotyczących hazardu, w szczególności w odniesieniu do zasad regulujących legalne prowadzenie internetowej działalności hazardowej oraz z uwagi na przyznanie krajowej loterii koncesji poprzez dekret królewski.
+większość państw członkowskich nie działa na tym obszarze, ale dzięki ue są one w stanie w prosty i szybki sposób zapewnić swój wkład.
+rada wyraża gotowość do rozważenia dalszego zwiększenia zaangażowania ue, zwłaszcza w dziedzinie policji i szerzenia praworządności.
+google ma obecnie możliwość ustosunkowania się do zarzutów komisji w terminie dziesięciu tygodni, a następnie ubiegać się o przeprowadzenie formalnego przesłuchania.
+największe różnice odnotowano w luksemburgu (47 proc.) i niemczech (44 proc.) .
+obecne wymogi crr dotyczą w dużej mierze banków i nie są w pełni dostosowane do specyfiki wszystkich firm inwestycyjnych.
+ma on wywierać wpływ na administrację krajową, promować współpracę międzyrządową, podnieść świadomość zaangażowanych stron oraz zwiększyć ich udział w debacie dotyczącej zmian klimatu.
+przedsiębiorstwa obiecały lepiej dostosowywać bieżące praktyki związane z wynajmem samochodów do wymogów ustawodawstwa dotyczącego konsumentów, określonego przez unijne przepisy w zakresie praw konsumentów, nieuczciwych praktyk handlowych oraz nieuczciwych postanowień umownych.
+następnie uciekł z miejsca, w którym był przetrzymywany w turcji, i wyjechał z tego państwa, docierając w styczniu 2009 r. do zjednoczonego królestwa, gdzie złożył wniosek o udzielenie azylu.
+taka sama sytuacja ma miejsce co 7 lat: w ostatnim roku okresu finansowego obserwuje się intensywny wzrost płatności.
+bardziej sprzyjający wzrostowi kurs polityki budżetowej; dalsze zmniejszanie deficytu
+„ łagodzenie zmiany klimatu ” – działania będą skoncentrowane na ograniczeniu emisji gazów cieplarnianych;
+obecne ramy regulacyjne pochodzą z lat 90. ubiegłego wieku i obejmują trzy dyrektywy.
+od 2009 r. przedsiębiorca, który zamierza założyć firmę lub właśnie to uczynił, może skorzystać z bezpośredniej pomocy doświadczonego przedsiębiorcy z innego państwa członkowskiego, z którym pracuje przez okres od jednego do sześciu miesięcy.
+„pragnę współpracować z państwami członkowskimi w celu zmniejszenia formalności administracyjnych i wspierania konkurencyjności tego sektora w oparciu o wysoki poziom ochrony konsumenta i śr odowiska naturalnego, jakim obecnie dysponujemy”.
+jej celem jest wyróżnienie i propagowanie konkretnych działań i inicjatyw, które znacząco przyczyniają się do promowania tożsamości i integracji europejskiej.
+to zrównoważone podejście ma być m.in. wspierane przez komitet wysokiego szczebla składający się z ekspertów rządowych z udziałem partnerów społecznych, aby ułatwiać wymianę dobrych praktyk.
+pomoc państwa: komisja przyjmuje nowe zasady wspierania przemysłu filmowego
+inicjatywa stanowi część działań komisji na rzecz zwiększenia zaufania konsumentów w ramach europejskiego programu na rzecz konsumentów ( ip/12/491 ).
+odpowiedzialne finanse publiczne
+w oparciu o badanie przetargów wygranych przez przedsiębiorstwa z krajów ue-15, analiza wykazuje, że około 8% całkowitego wolumenu kontraktów w polsce przyznano spółkom z krajów ue-15, z czego najważniejszą grupę stanowiły zdecydowanie przedsiębiorstwa niemieckie.
+dostosowuje ona reformy zapoczątkowane w 2003 r. i wnosi wkład do dyskusji na temat przyszłych priorytetów w zakresie rolnictwa.
+na wstępie rzecznik generalny yves bot zauważył, że trybunał po raz pierwszy zajmuje się pojęciem „wykorzystywania embrionów ludzkich do celów przemysłowych lub handlowych”, zawartym w dyrektywie 98/44.
+egidijus meilunas wiceminister spraw zagranicznych
+land oberösterreich (kraj związkowy górna austria) jest właścicielem nieruchomości przeznaczonych na cele rolnicze i na gospodarstwa doświadczalne, na których terenie założono szkołę rolniczą.
+trzy ważne decyzje na kolejne miesiące i lata
+środowiska społeczno-gospodarcze akp-ue wzywają do
+więcej szczegółów dotyczących poszczególnych elementów pakietu negocjacyjnego:
+prawa proceduralne obu stron są przestrzegane, a wydane orzeczenie staje się bezpośrednio wykonalne w kraju strony przegrywającej i w każdym innym kraju ue.
+zaoferujemy też nieodpłatną usługę elektronicznego gromadzenia danych dla organizatorów, możliwość korzystania z identyfikacji elektronicznej w celu poparcia inicjatywy oraz tłumaczenie wszystkich inicjatyw na wszystkie języki ue.
+już teraz w ramach współpracy na rzecz rozwoju ue wspiera inicjatywy na rzecz zwiększenia zaangażowania sektora prywatnego, ze szczególnym uwzględnieniem łączenia instrumentów.
+obecnie komisja pracuje nad stworzeniem planu działania w zakresie technologii finansowej, który zostanie przedstawiony wiosną tego roku.
+przy opracowywaniu wskaźnika wykorzystano ponad 30 współczynników, zastosowano w nim także system ważenia w celu uszeregowania krajów według poziomu cyfryzacji.
+pierwszy z nich dotyczy dodatków w środkach spożywczych i będzie stosowany od czerwca 2013 r. (okres karencji uznano za konieczny, aby umożliwić unijnemu przemysłowi spożywczemu dostosowanie się do nowych przepisów).
+josé pedro aguiar branco minister obrony
+ponadto rolnicy ekologiczni uzyskają od teraz dostęp do nowego rynku ekologicznego materiału siewnego, dzięki czemu wzrośnie bioróżnorodność oraz zrównoważony charakter upraw, a także dojdzie do pobudzenia innowacji.
+komisja proponuje zwiększenie środków o około 64% w porównaniu z obecnym siedmioletnim budżetem, co oznacza przeznaczenie 19 mld euro na nowy program w latach 2014-2020.
+liczba państw członkowskich nienależących do strefy euro – która wzrosła z 3 w momencie utworzenia mechanizmu w 2002 roku do 11 w 2009 roku – ma wpływ na ewentualne zapotrzebowanie na pomoc średnioterminową.
+rada oczekuje dalszego wszechstronnego i ukierunkowanego na wyniki dialogu z uzbeckimi władzami i z tego względu wyraża zadowolenie, że uzbekistan zgodził się na przeprowadzenie na przełomie maja i czerwca tego roku drugiej rundy rozmów ue – uzbekistan na temat praw człowieka.
+zarządzanie przedsiębiorstwami i prawo spółek: komisja podejmuje działania mające na celu zapewnienie wdrożenia przepisów unijnych w pięciu państwach członkowskich
+ue rozpoczęła dostarczanie rządowi palestyny bezpośredniej pomocy finansowej i technicznej.
+są one ustalone w taki sposób, aby były wystarczająco niskie, dzięki czemu będzie możliwa odbudowa zasobów do trwałego poziomu, który jednocześnie będzie na tyle wysoki, aby zapewnić wysokie odłowy rybakom.
+podczas warsztatów głos zabiorą: stały przedstawiciel rosji przy unii europejskiej władimir czyżow , dyrektor generalny europejskich służb działań zewnętrznych david o’sullivan oraz poseł do parlamentu europejskiego i przewodniczący delegacji parlamentu europejskiego w komitecie współpracy parlamentarnej ue – rosja knut fleckenstein .
+oba te programy stanowiÿ czÿÿÿ nowej skoordynowanej inicjatywy strategicznej pod nazwÿ i2010 – europejskie spoÿeczeÿstwo informacyjne 2010 – która zostanie oficjalnie ogÿoszona przez komisjÿ w maju.
+przedmiotowe wnioski przewidują wprowadzenie zmian do rozporządzenia dotyczącego eunb (w szczególności zmiany dotyczącej procedur głosowania), co ma na celu zapewnienie sprawiedliwego i skutecznego podejmowania decyzji w ramach jednolitego rynku.
+istvan major ambasador
+współpracował z pięcioma przewodniczącymi komisji, w tym jako zastępca szefów gabinetów przewodniczących jacques'a santera i josé manuela barroso.
+rozpoczynający się w dniu obchodów 20. rocznicy upadku muru berlińskiego i trwający tydzień festiwal focus ’89 jest hołdem złożonym narodzinom nowej europy.
+dla odwiedzających przewidziano gry, pokazy magii i występy muzyczne.
+w zielonej księdze nie zawarto żadnych surowych zaleceń na ten temat, nie przedstawiono również uwag na temat systemów emerytalnych konkretnych państw członkowskich.
+program ten zapoczątkuje inwestycje na łączną kwotę 432 mln euro (niemal czterokrotnie przewyższającą wsparcie wspólnotowe), przyczyni się do produkcji dodatkowych 8,5 megawatów mocy energii odnawialnej i zmniejszenia emisji gazów cieplarnianych o 95 000 ton rocznie. (memo/07/170)
+na początku kwietnia 2012 r. komisja przyjęła rozporządzenie zmniejszające stopień unijnego współfinansowania wsparcia organizacji producentów.
+mimo że uzyskanie dostępu do lokalnej pętli abonenckiej jest bardziej kosztowne dla operatorów alternatywnych, pozwala ono na większą kontrolę dostarczanych usług i umożliwia ich dostosowanie do szczególnych potrzeb użytkowników końcowych.
+nieodwracalność procesu reform, szczególnie jego realizacja, będą musiały zostać potwierdzone w dłuższym okresie.
+na skutek tego wyboru zjednoczone królestwo znajdzie się oczywiście w mniej korzystnej sytuacji niż państwa członkowskie.
+w związku z tym podjęliśmy istotne działania na rzecz lepszej ochrony zdrowia naszych obywateli przed konsumpcją tytoniu, w szczególności poprzez wdrożenie dyrektywy w sprawie wyrobów tytoniowych oraz dyrektywy w sprawie reklamy wyrobów tytoniowych.
+wniosek odzwierciedla rozporządzenie dublińskie w brzmieniu obowiązującym na obecnym etapie negocjacji, lecz zostanie dostosowany, aby uwzględnić ostateczne wyniki tych negocjacji.
+ogólne wyniki konsultacji internetowych na temat bibliotek cyfrowych:
+ocenione środki nie stanowią wsparcia inwestycji w tworzenie nowych zdolności produkcyjnych, a ich głównym celem jest przyczynienie się do osiągnięcia spójności gospodarczej i społecznej
+w roku 2014 r. liczba znanych stad, które można poławiać do poziomu msy, ulegnie zwiększeniu z trzech do pięciu, w porównaniu z rokiem 2013.
+w danii, na cyprze i malcie dotacje otrzymują wszyscy studenci.
+być może jednak powinienem ostrożniej używać słowa „stały”: kadencja przecież trwa 2 i pół roku… moim zadaniem jest dbać o poczucie ciągłości w pracach rady na szczeblu szefów państw i rządów.
+przez cały czas organizowane będą grupy z przewodnikiem w językach francuskim, angielskim i niemieckim.
+handel bananami – zawarcie porozumień i nowe taryfy na banany
+w czerwcu 2009 r. komisja zwróciła się do polski o podjęcie niezbędnych działań w celu dostosowania polskich przepisów do wymogów dyrektywy.
+instytucje: policie české republiky (policja, republika czeska) zobowiązała się do przeprowadzenia darmowych kursów zapobiegania wypadkom drogowym dla dzieci ze szkół podstawowych oraz osób uczestniczących w kursach prawa jazdy w mieście ústí nad labem (północne czechy, 118 tysięcy mieszkańców).
+pomoc państwa: komisja rozpoczyna postępowanie wyjaśniające w sprawie pomocy dla techmatrans
+wkład w projekt energetyczny we wschodnich karaibach (dotacja ue w wysokości 4,25 mln euro).
+brak wiary w sprawiedliwość systemów sądownictwa ogranicza współpracę sądową
+komisja będzie dalej wzmacniać dialog i współpracę z krajami trzecimi zajmującymi wysokie pozycje na liście państw-źródeł spamu.
+z drugiej strony minie jednak najprawdopodobniej około pięciu lat zanim zindywidualizowane uczenie się oraz wirtualne laboratoria czy laboratoria zdalne będą powszechnie wykorzystywane.
+modernizacja obowiązujących umów o wolnym handlu z meksykiem i chile oraz unii celnej z turcją.
+inicjatywa „regiony na rzecz zmian gospodarczych” - komisja europejska wzmacnia wymianę najlepszych praktyk w dziedzinie innowacji między regionami europy
+ue podkreśla, jak ważne jest wprowadzenie demokracji oraz poszanowanie praw człowieka i praworządności w hondurasie.
+wynikiem powinien być kolejny zrównoważony pakiet decyzji, który będzie do przyjęcia dla wszystkich stron.
+w wielu krajach odnotowano niepokojące ataki słowne i fizyczne, w tym nawoływanie do nienawiści w internecie, wymierzone w osoby ubiegające się o azyl i uchodźców.
+czym są działania służące tworzeniu sieci kontaktów?
+sprawozdanie potwierdza uzdrowienie gospodarki irlandii północnej – region dobrze sobie radzi w ostatnich latach w porównaniu z innymi częściami zjednoczonego królestwa i europą jako całością.
+w ramach ogólniejszej dyskusji rada omówiła również zasady, które powinny być uwzględniane w polityce azylowej ue obejmującej zarówno istniejące, jak i planowane wnioski z tej dziedziny.
+rada zwróciła się do wysokiej przedstawiciel, aby na początek przyszłego roku opracowała wraz z komisją strategię na rzecz sahelu.
+b) bezpłatna dystrybucja owoców i warzyw w roku 2008 – wniosek delegacji belgijskiej
+niewdrożenie przez państwa członkowskie prawodawstwa w zakresie ochrony środowiska, brak integracji polityki środowiskowej z innymi obszarami politycznymi oraz trudności w korzystaniu z unijnych instrumentów finansowych w celu wsparcia inwestycji w dziedzinie środowiska mają znaczny wpływ na opracowanie i realizację polityki środowiskowej.
+pomoc w osiągnięciu polubownego rozwiązania sporu ze sprzedawcą;
+państwa członkowskie będące stronami protokołu w sprawie dorobku schengen, zebrane w radzie, przyjęły budżet korygujący sisnetu nr 2 na rok 2010.
+dg ds. środowiska poświęconej zmianom klimatu:
+wielojęzyczność leży u podstaw projektu europejskiego.
+przydziały osób do relokacji przewidziane dla nieuczestniczących państw członkowskich zostaną rozdzielone między pozostałe państwa członkowskie.
+potrzebne są bardziej zdecydowane środki w celu ochrony innych wrażliwych grup przed dyskryminacją, w szczególności ze względu na orientację seksualną.
+stanowi to ramy, w których należy rozpatrywać wytyczne zawarte w niniejszych konkluzjach.
+powstrzymać się od wszelkich czynności niezgodnych z charakterem mojego stanowiska lub pełnionych przeze mnie obowiązków.
+wzrost gospodarczy w dużym stopniu napędzany jest tymczasowymi czynnikami, takimi jak niskie ceny ropy, słaby kurs euro i akomodacyjna polityka pieniężna europejskiego banku centralnego.
+w sektorze kształcenia zawodowego ponad 6 proc. osób w wieku 18-34 lat, posiadających kwalifikacje zawodowe, powinno mieć za sobą jakiś okres kształcenia lub szkolenia za granicą.
+obejmuje to zrewidowanie niektórych ram pomocy państwa w obszarach strategicznych, takich jak pomoc regionalna, pomoc na rzecz środowiska, kapitał ryzyka, sieci szerokopasmowe; przepisy dotyczące ratowania i restrukturyzacji spółek niefinansowych; zrewidowanie ogólnego systemu wyłączeń blokowych, przegląd zasady „de minimis” oraz zweryfikowanie procedury składania skarg.
+rada przyjęła do wiadomości postępy przygotowań do szczytu ue – rosja, który ma się odbyć w rosyjskim mieście chanty-mansyjsk w dniach 26–27 czerwca; będzie do 21 szczyt w ramach umowy o partnerstwie i współpracy między ue i rosją.
+komisarz hübner skoncentruje się na niedawno opublikowanej zielonej księdze w sprawie spójności terytorialnej i przyszłości polityki spójności.
+wiele już zrobiono na szczeblu ue , aby dotrzeć do źródeł problemu , podejmując inicjatywy mające na celu:
+w odniesieniu do wymiaru morskiego w epbio rada z zadowoleniem przyjęła studium o wymiarze morskim odnotowane przez komitet wojskowy ue w grudniu 2006 r.
+rada potwierdza gotowość do aktywnej współpracy z tymi państwami w 2009 roku.
+komisja inicjuje szereg działań mających na celu przygotowanie do planowanego na 2012 r. przeglądu polityki w zakresie niedoboru wody i suszy.
+analizy cyklu życia produktu pokazują, że w niektórych przypadkach nie jest możliwe zastosowanie alternatywnego rozwiązania.
+bank, dzięki swojej dogłębnej znajomości sektora, przynosi znaczące korzyści zarówno krajom partnerskim, jak i ue."
+ciężko pracujemy więc nad planem długoterminowym, ale jednocześnie na bieżąco zmagamy się ze skutkami kryzysu.
+ponadto decyzja zawiera polityczne deklaracje ue i jej państw członkowskich oraz wszystkich innych potencjalnych nabywców – australii, japonii, liechtensteinu, monako, nowej zelandii, norwegii i szwajcarii, w których stwierdzają oni, że nie nabędą aau przeniesionych z początkowego okresu.
+komisja europejska podjęła dziś decyzję o zarejestrowaniu europejskiej inicjatywy obywatelskiej „obowiązkowe znakowanie środków spożywczych jako niewegetariańskie / wegetariańskie / wegańskie”.
+potrzebujemy polityki europejskiej, ale musimy także upewnić się, że te ogólne środki są dostosowane do lokalnych potrzeb”.
+pozostawienie kwot mlecznych na niezmienionym poziomie uniemożliwiłoby ue wykorzystanie możliwości rynkowych wynikających z rosnącego popytu i wysokich cen.
+komisja generalnie zgadza się z wnioskami trybunału, które potwierdzają jej stanowisko, że w wymienionych dziedzinach zakres reformy wpryb z 2002 r. był niewystarczający.
+przyjęcie czwartej i piątej dyrektywy w sprawie przeciwdziałania praniu pieniędzy znacznie wzmocniło ramy prawne ue oraz zasady dotyczące współpracy między organami nadzoru odpowiedzialnymi za przeciwdziałanie praniu pieniędzy oraz nadzór ostrożnościowy.
+komisja zarejestrowała ten znak jako wspólny znak towarowy.
+załącznik iii do tej decyzji zostanie zmieniony, tak by uwzględnić zmiany zasad określania pochodzenia produktów pochodzących z terytorium ue i meksyku.
+jeżeli tego nie uczynią, komisja może podjąć decyzję o skierowaniu sprawy do trybunału sprawiedliwości.
+nie zapobiega przy tym brutalnym przestępstwom.
+ocena konieczności i zasadności wsparcia na rzecz stabilności; dokonywana wspólnie z ebc (zob. art. 13 ust. 1 porozumienia ems)
+rada podkreśla także, jak ważne jest zadbanie o to, by osoby poszukujące bezpieczeństwa nie dostały się w ręce handlarzy i przemytników”.
+zmienione przepisy zahamują tę tendencję, zmniejszając nie tylko emisje siarki, lecz co ważniejsze emisje cząstek stałych, co oznacza wyraźny postęp w zakresie ochrony zdrowia ludzi i środowiska.
+zbycie przedsiębiorstwa lub jego wyodrębnionej części;
+aby w dalszym ciągu wspierać dyskusje w całej europie i skonkretyzować wyniki w ramach projektu, komisja europejska zbierze wszystkie pomysły oraz materiały drukowane i audiowizualne stworzone przez młodych ludzi w jeden zestaw narzędzi, który zostanie zamieszczony w internecie.
+może ona być wzorem dla innych europejskich państw znajdujących się obecnie w trudnej sytuacji gospodarczej.
+poprzez 455 programów, które w latach 2007-2013 będą realizowane na całym terytorium europy, polityka spójności pomaga regionom radzić sobie z najważniejszymi wyzwaniami: dostosowaniem do globalizacji, zmianami demograficznymi i klimatycznymi oraz zagadnieniami związanymi z energią.
+zasady mogą na przykład określić, że uprawnienia mają opierać się na tak zwanych punktach odniesienia, którymi może być np. pewna liczba uprawnień na ilość historycznej produkcji.
+wytyczne rady europejskiej
+komisja śledzi uważnie ich postępy w podejmowaniu działań zmierzających do wdrożenia unijnego prawa w dziedzinie ochrony środowiska.
+podkreśla znaczenie infrastruktur badawczych dla rozwoju zasobów ludzkich w dziedzinie badań i rozwoju oraz specjalnych korzyści dla mobilności między sektorami i zaangażowania branży w proces kształcenia naukowców, a także wzywa państwa członkowskie do zaangażowania się w przygotowywanie specjalnych szkoleń w celu nawiązania współpracy między uniwersytetami, podmiotami zajmującymi się badaniami, infrastrukturami badawczymi i sektorem.
+ściśle mówiąc, dyrektywa dotyczy pojazdów użytkowych (półciężarówek, ciężarówek, naczep, przyczep), autobusów i autokarów.
+w ciągu ostatnich dziewięciu miesięcy liczba ta uległa podwojeniu: do jesieni 2016 r. prawie 130 mld eur – 20 % łącznej puli środków europejskich funduszy strukturalnych i inwestycyjnych – zainwestowano w małe przedsiębiorstwa, badania naukowe, sieci szerokopasmowe, efektywność energetyczną i tysiące innych projektów dotyczących kluczowych priorytetów strategii ue na rzecz wzrostu gospodarczego i zatrudnienia.
+od momentu przyjęcia przez wspólnotę pierwszego wspólnego oświadczenia w sprawie polityki rozwoju w 2000 roku komisja ma za zadanie przedstawiać co roku radzie i parlamentowi europejskiemu sprawozdanie roczne na temat polityki rozwojowej wspólnoty europejskiej oraz realizacji pomocy zewnętrznej.
+przypominając konkluzje rady z 1–2 grudnia 2005 r. w sprawie zasad europejskiego programu ochrony infrastruktury strategicznej;
+komisja jest przekonana, że w tegorocznej edycji konkursu ujawni się nowy talent dziennikarski, a w centrum zainteresowania znajdą się opinie oraz troski obywateli i pacjentów dotyczące tematyki zdrowotnej.
+jeżeli nie uda się osiągnąć jednomyślności w radzie, w traktatach przewidziano, że grupa co najmniej dziewięciu państw członkowskich może podjąć wzmocnioną współpracę (art. 86 tfue).
+cel ten jest zgodny z paktem na rzecz stabilności i wzrostu, ale osiągnięty zostałby dopiero po roku 2010, w okresie nieobjętym programem.
+wielu ministrów opowiedziało się również za wzmocnieniem społecznego wymiaru strategii i uwzględnieniem kolejnych wyzwań, takich jak zmiany demograficzne, zmiana klimatu, równość płci oraz wynikająca z globalizacji rosnąca konkurencja.
+zwolnienie z vat obowiązuje tylko przy równoczesnym spełnieniu dwóch warunków:
+przepisy prawne nie określają minimalnych wymogów, które państwa członkowskie muszą stosować w zakresie kontroli dotyczących specyfikacji produktu;
+odczuwalna jest już od jakiegoś czasu poprawa sytuacji gospodarczej w ue.
+pod względem zagrożenia ubóstwem i szans jego uniknięcia państwa członkowskie znacznie różnią się między sobą.
+baszkan dodał, że integracja europejska mogłaby spowodować obawy dotyczące poszanowania integralności terytorialnej gagauzji i mołdawii, w szczególności przez rumunię.
+języki migowe są pierwszym – „ojczystym” językiem wielu osób niesłyszących, a drugim lub trzecim językiem dla ich rodzin i przyjaciół.
+komisja przedłożyła również szereg wniosków ustawodawczych, które mają przyczynić się do wdrażania założeń filara.
+operatorzy telekomunikacyjni i dostawcy internetu przechowują szereg danych o swoich klientach – takich jak imię i nazwisko, adres oraz numer konta bankowego – równolegle z informacjami na temat przeprowadzanych rozmów telefonicznych i odwiedzanych stron internetowych.
+prace komitetu na początku skupią się na zagadnieniach dotyczących zdrowia, bezpieczeństwa, szkolenia i edukacji.
+środki takie jak „konta czasu pracy”, pozwalające pracownikom na gromadzenie okresów niewykorzystanego płatnego urlopu lub odpoczynku oraz organizacja czasu pracy (okresy odpoczynku dziennego, przerwy, urlop roczny itp.) powinny być możliwie jak najatrakcyjniejsze dla przedsiębiorstw i pracowników.
+jednocześnie, ze względu na strategiczne znaczenie tych możliwości technicznych dla dywersyfikacji, bieżące możliwości techniczne są rozbudowywane, a także tworzone są nowe obiekty w obszarze morza adriatyckiego (na wyspie krk w chorwacji), morza bałtyckiego, przede wszystkim w polsce, a także morza śródziemnego – w grecji.
+prowadzone będą szkolenia dla prawników, burmistrzów, urzędników miejskich, którzy staną się członkami powstającej sieci kontaktów.
+w dniu 8 kwietnia androulla vassiliou, europejska komisarz ds. edukacji, kultury, wielojęzyczności i młodzieży, powita wszystkich laureatów – po jednym z każdego państwa ue – zaproszonych na uroczystość wręczenia nagród w brukseli.
+na podstawie tego sprawozdania komitet ochrony socjalnej przygotował projekt pięciu głównych przesłań do zatwierdzenia przez radę, podkreślając, że środki konsolidacji fiskalnej muszą reagować na potrzeby społeczne wszystkich pokoleń, a także umożliwić zachowanie zdolności systemów zabezpieczenia społecznego do amortyzowania wszelkich skutków kryzysu – które nie są jednakowe dla wszystkich – i do przetrwania okresów wstrząsów gospodarczych.
+w dniu 24 lutego 2010 r. komisja przedstawiła wniosek w sprawie zmiany rozporządzenia rady (we) nr 2007/2004 (6898/10 ).
+jeżeli hiszpania nie zaradzi w ciągu dwóch miesięcy istniejącej sytuacji, komisja może skierować przeciw niej sprawę do trybunału sprawiedliwości ue.
+w debacie o przyszłości europy, która toczy się na pełnych obrotach, edukacja i młodzież znajdują się wysoko na liście priorytetów politycznych przywódców ue.
+agencja powinna odgrywać istotniejszą, niż przewidziano, rolę, co pozwoliłoby nadać przepisom dotyczącym kwestii transgranicznych bardziej europejski wymiar oraz zapewnić należyte uwzględnienie interesu publicznego.
+chcę zachęcić wszystkie państwa członkowskie wokół morza bałtyckiego do skoordynowania działań w celu maksymalnego wykorzystania instrumentów polityki regionalnej ue”.
+jakie ryzyko niesie ze sobą wprowadzenie takiego podatku?
+zoltán cséfalvay sekretarz stanu, ministerstwo gospodarki narodowej
+ten europejski szczyt poświęcony edukacji będzie pierwszym z wielu – kolejny zostanie zorganizowany jesienią 2019 r.
+rada potępia niedawne walki w mogadiszu zagrażające tymczasowym instytucjom federalnym i procesowi pokojowemu z dżibuti.
+celem dyrektywy jest rozszerzenie ochrony przed dyskryminacją ze względu na religię lub światopogląd, niepełnosprawność, wiek lub orientację seksualną na dziedziny inne niż zatrudnienie, tj. na ochronę socjalna, zabezpieczenie społeczne i opiekę zdrowotną, przywileje socjalne i edukację oraz dostęp do towarów i usług, w tym mieszkalnictwo.
+spyros vougias sekretarz stanu, minister infrastruktury, transportu i sieci
+taki wymóg prawny powinien dostarczać państwom członkowskim wyraźnej zachęty do realizacji projektów transportowych zgodnie z planem.
+w negocjacjach pod uwagę brane będą wyniki dialogu dotyczącego kwestii gospodarczych i politycznych.
+dzisiejsza konferencja komitetu regionów była pierwszą okazją do tego, by omówić korzyści dla różnych regionów europy, jakie wynikają z wprowadzenia ram makroregionalnych.
+w 2006 r. komisja zaproponowała zmiany do rozporządzenia w odniesieniu do przepisów dotyczących jurysdykcji, a także wprowadzenia zasad dotyczących właściwego prawa w sprawach małżeńskich.
+pracownicy danej dyrekcji generalnej zarządzają programami i działaniami ue realizowanymi w podlegającym tej dg obszarze działalności, we współpracy ze swoimi odpowiednikami w państwach członkowskich lub, jeśli zaistnieje taka potrzeba, z innymi stronami trzecimi.
+spowodowałoby to wzrost kosztów w sektorach energochłonnych przemysłu o ponad 10 mld eur rocznie w latach 2040-2050.
+pierwsze posiedzenie stałej rady partnerstwa ue – rosja
+inwestycje publiczne w ue wciąż znajdują się poniżej poziomu sprzed kryzysu, a regiony i państwa członkowskie potrzebują nawet większego wsparcia, aby sprostać wyzwaniom określonym w dokumencie otwierającym debatę na temat przyszłości finansów ue; cyfrowej rewolucji, globalizacji, zmian demograficznych i spójności społecznej, konwergencji gospodarczej i zmiany klimatu.
+jaka struktura organizacyjna będzie odpowiedzialna za zarządzanie korpusem?
+wspaniale jest obserwować, jak ta kampania porywa wyobraźnię ludzi.
+należy podjąć dalsze wysiłki zmierzające do lepszego egzekwowania zasad polityki konkurencji, w szczególności w sektorze usług i w sektorach sieciowych, zwłaszcza w sektorach transportu, energii i telekomunikacji.
+o dostawcy zdolności wytwórczych będą wybierani w oparciu o organizowane regularnie konkurencyjne aukcje, otwarte dla nowych i istniejących wytwórców, w tym producentów energii ze źródeł odnawialnych, podmiotów zapewniających regulację zapotrzebowania i podmiotów magazynujących.
+podkreśla, że wiele z proponowanych zmian już wprowadzono w pakiecie prawodawczym dotyczącym polityki spójności na lata 2007–2013, co świadczy o ich ogromnej istotności;
+krajowe procedury inspekcji służące wykrywaniu naruszeń i zapobieganiu im są nieskuteczne; oraz
+jeśli produkowana przez nas energia nie stanie się bardziej konkurencyjna, to w ciągu najbliższych 20-30 lat wynoszące obecnie 50% uzależnienie energetyczne wzrośnie do 70%.
+skutki finansowe są niższe ze względu na kwoty już odzyskane od państwa członkowskiego lub przez nie zwrócone.
+ustalić przejrzyste zasady i wspólne kryteria, które będą stosowane przy wypracowywaniu przez państwa członkowskie porozumienia w sprawie najodpowiedniejszej jurysdykcji;
+w tym kontekście unia europejska wyraża zaniepokojenie decyzją władz rosyjskich o zamknięciu przedstawicielstw british council w jekaterynburgu i sankt petersburgu i wzywa do jej ponownego rozpatrzenia.
+osoby podlegające ochronie na mocy umowy o wystąpieniu, które nie uzyskały jeszcze prawa stałego pobytu – jeżeli nie mieszkały w państwie przyjmującym przez co najmniej pięć lat – będą podlegały pełnej ochronie na mocy umowy o wystąpieniu i będą mogły nadal przebywać w państwie przyjmującym oraz uzyskać prawo stałego pobytu również po wystąpieniu wielkiej brytanii z ue.
+promocja unijnych produktów rolnych poza granicami ue
+jeżeli chodzi o zarządzanie granicami, w sprawozdaniu odnotowano, że grecja uzgodniła z agencją frontex przeprowadzenie istotnych wspólnych operacji; 40 oddelegowanych funkcjonariuszy będzie wspierać pobieranie odcisków palców i rejestrowanie migrantów na granicach północnych, 293 oddelegowanych funkcjonariuszy - na wyspach greckich (na lądzie i na morzu), 213 - poza obszarami znajdującymi się pod szczególną presją migracyjną, zaś w styczniu 2016 r. przybędzie 100 dodatkowych pracowników fronteksu.
+konferencja zorganizowana z okazji czwartej rocznicy powstania tych instrumentów da możliwość wymiany informacji, wskazówek i dobrych praktyk.
+w komunikacie z 6 kwietnia ustanowiono też cel ograniczenia nielegalnych przepływów migracyjnych, m.in. przez stworzenie bezpiecznych i legalnych dróg migracji do ue dla osób wymagających ochrony.
+przedmiotowa decyzja rady zmienia wykaz osób i podmiotów podlegających środkom ograniczającym zgodnie z załącznikiem i do decyzji 2011/782/wpzib.
+należy to wziąć pod uwagę na szczeblu ue przy realizacji celów określonych w komunikacie.
+rozczarowujemy i młodych, i starszych, dla których nie ma miejsca na zbyt mało elastycznych rynkach pracy.
+komitet ten przeprowadził również przegląd sytuacji, jeśli chodzi o wdrażanie systemu informacyjnego schengen (sis ii).
+nowe przepisy ujednolicają techniczne i prawne warunki dotyczące usług komunikacji na pokładzie i torują drogę dla innowacyjnych aplikacji, takich jak system zdalnego monitorowania kontenerów składowanych na pokładzie.
+analiza ta zostanie także wykorzystana w pracach w ramach europejskiego semestru na rzecz koordynacji polityki gospodarczej.
+rząd cypru poinformował radę unii europejskiej, że na stanowisko stałego przedstawiciela republiki cypryjskiej przy unii europejskiej mianowany został ambasador kornelios korneliou .
+proponuje się w nim ponadto, by stosowanie systemów automatycznej identyfikacji (ais) było obowiązkowe dla statków rybackich o długości przekraczającej 15 metrów oraz by zaostrzyć obowiązki związane z przekazywaniem informacji ciążące na załadowcy.
+omówili również wstępne ustalenia i zalecenia dla ue zawarte w realizowanym pod auspicjami mfw programie oceny sektora finansowego oraz stan prac w odniesieniu do dwupaku obejmującego zasady zarządzania gospodarczego w strefie euro.
+podstawą jednolitego mechanizmu nadzorczego będą najwyższe standardy nadzoru bankowego, a ebc będzie mieć możność – w zróżnicowany sposób – sprawowania bezpośredniego nadzoru.
+14 osób, w tym przewodniczący, było członkami poprzedniej komisji.
+prezydencja stwierdziła, że ma zamiar włączyć główny rezultat debaty wraz z wynikami prac przeprowadzonych od lipca, do sprawozdania, które ma zostać przedstawione radzie w dniu 5 grudnia.
+obecna numeracja posiedzeń rady sięga wejścia w życie traktatu fuzyjnego w dniu 1 lipca 1967 r., który ustanowił jedną radę i jedną komisję.
+będziemy się dzielić naszymi doświadczeniami w zakresie tworzenia regionalnych i zliberalizowanych rynków energii ze szczególnym naciskiem na kształtowane przez rynek przekształcenia w kierunku czystej energii.
+sprawozdanie z oceny wdrażania dorobku schengen
+decyzje te dotyczą wielu sektorów, a ich celem jest zapewnienie należytego stosowania prawa ue dla dobra obywateli i z korzyścią dla przedsiębiorstw.
+w miarę narastania potencjału azji, nieunikniony staje się pewien zmierzch naszej rangi w gospodarce światowej.
+jednak największe z aktualnych niebezpieczeństw związane jest z rynkami ropy.
+ue ponownie wyraża zaniepokojenie tym, w jakich warunkach odbywały się te procesy, w szczególności w odniesieniu do tego, czy zostały zapewnione należyte gwarancje proceduralne i inne gwarancje sprawiedliwego procesu.
+niektóre delegacje zgłosiły obawy, że „zasiłek chorobowy” nie jest terminem jasnym (istnieją różne wysokości zasiłku chorobowego, w tym zasiłek chorobowy ustawowy i składkowy, a jego wysokość może także zależeć od długości trwania choroby);
+lepszy dostęp do rynku dla europejskich eksporterów – konkluzje rady
+wspólne działanie, przyjęte w listopadzie, przedłużyło eupm na okres od 1 stycznia 2008 r. do 31 grudnia 2009 r. w odpowiedzi na zaproszenie władz bih.
+nałożony na sprawcę zakaz wykonywania działalności, które wiążą się z kontaktem z dziećmi, powinien być skutecznie egzekwowany nie tylko w kraju skazania, ale w całej ue;
+znajdują się one w następujących miastach: lille (francja), rostock (niemcy), katowice (polska) i walencja (hiszpania).
+dobra kondycja sektora pszczelarstwa jest delikatną kwestią ze względu na podstawową rolę pszczół w procesie zapylania.
+do błędów dochodzi, gdy zasady te zostają złamane – na przykład gdy rolnicy nie przestrzegają podjętych zobowiązań środowiskowych, promotorzy projektów nie stosują się do przepisów dotyczących udzielania zamówień publicznych, bądź gdy ośrodki badawcze wnioskują o zwrot kosztów niezwiązanych z projektami finansowanymi ze środków ue.
+zapowiedź ta miała miejsce podczas szczytu ue-celac (wspólnota państw ameryki łacińskiej i karaibów) odbywającego się w brukseli w dniach 10–11 czerwca.
+zharmonizowane warunki w zakresie zdrowia zwierząt dotyczące handlu bydłem określone w dyrektywie 64/432/ewg nie obejmują wymogów w zakresie paratuberkulozy.
+oświadczenie wysokiej przedstawiciel do spraw zagranicznych i polityki bezpieczeństwa catherine ashton wydane w imieniu unii europejskiej w sprawie rozwoju sytuacji w syrii
+opodatkowanie oszczędności – konkluzje rady
+projekt zmienionego rozporządzenia finansowego, w sprawie którego trybunał przekazał niedawno parlamentowi europejskiemu swoja opinię, zawiera szereg propozycji, które pozwolą komisji zwiększyć przejrzystość i poprawić zarządzanie finansami.
+osoby bezdomne, osoby niepełnosprawne, imigranci i mniejszości etniczne wymagają szczególnej uwagi.
+kraj przystępujący: chorwacja*; kraje kandydujące: turcja, była jugosłowiańska republika macedonii*, czarnogóra*, islandia+ i serbia*; państwo uczestniczące w procesie stabilizacji i stowarzyszenia i potencjalny kraj kandydujący: albania; państwo efta będące członkiem europejskiego obszaru gospodarczego: liechtenstein; a także republika mołdowy, armenia i gruzja przyłączają się do tej decyzji.
+przepisy opublikowane w dniu dzisiejszym powodują otwarcie pasma widma radiowego gsm dla bardziej zaawansowanych urządzeń telekomunikacji bezprzewodowej.
+w przypadku drugiego programu, highlands and islands, głównym obszarem inwestycji ma być konkurencyjność przedsiębiorstw oraz zrównoważony wzrost w obszarach odizolowanych – poprzez wsparcie dla małych projektów infrastrukturalnych.
+wnioski z analizy: mechanizm niegotowy (dodatkowo do kategorii 2)
+celem tego projektu pilotażowego jest komercjalizacja i zwiększenie skali mogących przynieść korzyści projektów międzyregionalnych w sektorach priorytetowych takich jak duże zbiory danych, biogospodarka, efektywne gospodarowanie zasobami, mobilność oparta na dostępie do internetu, zdrowie i aktywność osób starszych bądź cyberbezpieczeństwo.
+vibeke storm rasmussen przytoczyła jeszcze inne przykłady działań w regionie stołecznym i zauważyła, że „ekologiczna renowacja domów prywatnych i naszych szpitali coraz bardziej będzie skierowana na kwestie zrównoważonego rozwoju i zużycia energii”.
+na jedną sfałszowaną monetę przyp ada 100 tys. prawdziwych.
+nowe badania wskazują, że istnieje związek między wystawieniem na działanie wielu substancji zaburzających gospodarkę hormonalną we wczesnym okresie życia a poważnymi skutkami zdrowotnymi w późniejszych okresach.
+plan działań dotyczący e-sprawiedliwości podaje konkretne informacje na temat obecnej sytuacji i ma na celu realistyczne zaplanowanie prac na najbliższe miesiące i lata.
+luca jahier , przewodniczący grupy innych podmiotów, poparł tę wypowiedź i dodał, że „w najważniejszych obszarach polityki postęp nie jest możliwy bez udziału społeczeństwa obywatelskiego”.
+rada podjęła decyzję, że nie będzie się sprzeciwiać przyjęciu przez komisję rozporządzenia zastępującego załącznik ix do dyrektywy 2007/46/we parlamentu europejskiego i rady ustanawiającej ramy dla homologacji pojazdów silnikowych i ich przyczep oraz układów, części i oddzielnych zespołów technicznych przeznaczonych do tych pojazdów.
+z prawnego punktu widzenia własność towarów sprzedawanych przez dimensione była przenoszona na klientów niemieckich we włoszech.
+jednakże w pewnych przypadkach organ sądowy wykonujący nakaz może odmówić przekazania osoby ściganej.
+nowe przepisy nie naruszają tradycji prawa rodzinnego obowiązującej w zaangażowanych państwach członkowskich.
+książę filip , hiszpański następca tronu
+pomoc państwa: najnowsze wyniki potwierdzają zahamowanie tendencji spadkowej ogólnego poziomu pomocy
+w komunikacie przedstawiono dotychczasowe osiągnięcia w ramach planu inwestycyjnego dla europy oraz europejskiego funduszu na rzecz inwestycji strategicznych.
+zaostrzono ograniczenia, i obecnie wykraczają one poza poziom sprzed wyborów.
+rada europejska potwierdza zdecydowaną wolę racjonalnego gospodarowania finansami publicznymi i realizacji paktu stabilności i wzrostu.
+odpady: komisja domaga się od finlandii wprowadzenia unijnych przepisów dotyczących odpadów do prawa krajowego
+głównymi priorytetami prezydencji irlandzkiej będą:
+ohim popełnił kilka błędów, oddalając sprzeciwy wniesione przez budĕjovický budvar wobec rejestracji zgłoszeń anheuser-busch
+istniejące strategie stanowią użyteczną lekcję dla potencjalnych nowych makroregionów.
+ministrowie wymienili poglądy na temat międzynarodowej konkurencyjności europejskiego modelu przemysłu rolno-spożywczego , a także równości płci na obszarach wiejskich
+w ramach obrad otwartych dla publiczności rada uzgodniła częściowe podejście ogólne1 w odniesieniu do ustanowienia programu działań dla ceł w unii europejskiej na okres 2014–2020 (program „cła 2020”) jako następcy programu „cła 2013”, który przestaje obowiązywać 31 grudnia 2013 r. ( 17005/12 ) .
+jej dzieła zrodziły się z doświadczeń i emocji malarki.
+dokument ten będzie odzwierciedlał stanowisko komisji na temat ewentualnej potrzeby podjęcia przez nią dodatkowych inicjatyw lub określenia wytycznych w tym zakresie.
+[1] spotkanie to organizuje komisja europejska we współpracy z parlamentem europejskim, europejskim komitetem społeczno ekonomicznym i komitetem regionów.
+kryzys finansowy wyraźnie pokazał, że organy publiczne nie są odpowiednio przygotowane do postępowania z mającymi problemy bankami działającymi na zglobalizowanych rynkach.
+archiwa w europie i sprostanie wyzwaniom ery cyfrowej
+„oszustwa podatkowe i unikanie opodatkowania powodują każdego roku w ue straty rzędu biliona euro.
+jeśli natomiast problem w zakresie wystarczalności mocy wytwórczych dotyczy określonego obszaru, skuteczniejszym rozwiązaniem będą prawdopodobnie lepsze połączenia sieciowe oraz odpowiednie zdefiniowanie granic geograficznych obszarów rynkowych.
+w stosownych przypadkach nowelizacja nadaje pasażerom nowe prawa (ich pełny wykaz zawiera notatka prasowa memo/13/203 ).
+uznając znaczenie dalszego podejmowania decyzji w drodze konsensusu zawsze, gdy jest to możliwe, wzywa komitety poziomu trzeciego do poprawy skuteczności i efektywności procedur podejmowania decyzji przez wprowadzenie w swych statutach możliwości stosowania głosowania kwalifikowaną większością głosów w razie potrzeby.
+viviane hoffmann była w ostatnim czasie odpowiedzialna za dialogi obywatelskie i debatę na temat przyszłości europy.
+kwestie horyzontalne – instrumenty poza wieloletnimi ramami finansowymi i elastyczność
+w drugim zaś przypadku spółka będąca rezydentem nie podlega opodatkowaniu od zysków zależnej od niej spółki zagranicznej w momencie, gdy są one osiągane.
+teraz przyjmujemy wspólny sposób reagowania na zagrożenia dla bezpieczeństwa i nadchodzące wyzwania.
+możliwość takiej kontroli wydaje się niezbędna, aby zapewnić właściwą równowagę pomiędzy wymogami walki z międzynarodowym terroryzmem a ochroną swobód i praw podstawowych.
+władze lokalne i regionalne odgrywają zasadniczą rolę w opracowywaniu odpowiednich sposobów podejścia do zmiany klimatu oraz kształtowania przyszłych społeczności.
+aby osiągnąć ten cel, zapewniając jednocześnie większą stabilność rybołówstwa, potrzebne są długoterminowe plany odbudowy i lepsze stosowanie prawodawstwa z jednej strony, oraz aktywny udział stron zainteresowanych z drugiej strony.
+komisja będzie ściśle monitorować stosowanie zalecenia, a wnioski zostaną opublikowane w formie tabel wyników.
+środowiska wolne od dymu tytoniowego
+sytuacja ta nie jest sprawiedliwa ani zrównoważona.
+za pomocą nowej generacji programów ue, przede wszystkim programu erasmus+ i „horyzont 2020” na rzecz badań naukowych, komisja wykorzysta osiągnięcia programów erasmus mundus i „marie curie”, tak aby modernizacja europejskiego szkolnictwa wyższego i nadanie mu wymiaru międzynarodowego było zdecydowanym priorytetem działań.
+jego pierwsze obchody miały miejsce 15 marca 1983 r.
